@@ -18,3 +18,9 @@ For safety reasons, I have not included links to artists' source by default, exc
 **What about other Hong Kong protest art threads?**
 
 There are many very good threads or collections of Hong Kong protest art out there! I urge you to keep your own archives to keep them circulating. However, I decided that the focus of this particular project and archive will be on a single author's set of Hong Kong protest art threads - which is why I have not included threads linked by the original poster, that were created by another user.
+
+**To-do**
+
+- [ ] Content complete
+- [ ] Redo alternate text
+- [ ] Commentary
