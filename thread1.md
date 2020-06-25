@@ -36,16 +36,16 @@ We tapped into Star Wars later. Started as a fun bit of trolling - in early Aug,
 
 The HK version of Tom Jung's iconic Star Wars poster. We are a new hope. China is the Death Star, the police is its enforcer, Vader, and we have tear gas canisters flying instead of X-wings. Note R2 has been unceremoniously replaced by a bin. I don’t know why either. 😂 7/25
 
-[t1-p16]
-[t1-p17]
+![t1-p16](images/thread1/t1-p16.jpg)
+![t1-p17](images/thread1/t1-p17.jpg)
 
 Let’s talk Luke. That’s his lightsaber on here (because me = nerd). Not just his, actually. Anakin’s first, then Luke, then passed on to Rey 30 yrs later.  We HKers are just the latest custodians of hope, part of a fight that started long before we were born. 8/25
 
-[t1-p18]
+![t1-p18](images/thread1/t1-p18.jpg)
 
 Fitting the other SW story we see ourselves in is TLJ. We are a desperate Resistance. We are Rose, saving what we love, even as we grieve. We are Luke, facing the might of the FO alone, asking our family to choose better,  buying time for our friends. We are the spark... 9/25
 
-[t1-p19]
+![t1-p19](images/thread1/t1-p19.jpg)
 
 These may just be kids referencing what they know. But these modern shared myths have also helped HKers frame what we're going thru, because... it still feels surreal. But heroes standing up against evil? - a tale as old as time, we can wrap our heads around that. 10/25
 
@@ -53,53 +53,52 @@ These may just be kids referencing what they know. But these modern shared myths
 
 Apart from identifying with modern myths, HKers have also been active creating their own. The most prevalent is the distinction between the frontline 'braves', and the peaceful 'woleifei'. 12/25
 
-[t1-p20]
-[t1-p21]
+![t1-p20](images/thread1/t1-p20.jpg)
+![t1-p21](images/thread1/t1-p21.jpg)
 
 The 'braves' have the most stunning art and posters. Because, I mean... just look at that imagery. We turn street signs into shields. We use mom's oven mitts to pick up tear gas canisters. We have our tennis rackets and umbrellas, in a city of fire and smoke. 13/25
 
-[t1-p22]
-[t1-p23]
-[t1-p24]
-[t1-p25]
+![t1-p22](images/thread1/t1-p22.jpg)
+![t1-p23](images/thread1/t1-p23.jpg)
+![t1-p24](images/thread1/t1-p24.jpg)
+![t1-p25](images/thread1/t1-p25.jpg)
 
-More posters of the 'braves'  in HK. A crew of masked and geared up young people, posed like reluctant heroes in some cyberpunk world. And always, the damn tear gas. 14/25
+More posters of the 'braves' in HK. A crew of masked and geared up young people, posed like reluctant heroes in some cyberpunk world. And always, the damn tear gas. 14/25
 
-[t1-p26]
-[t1-p27]
-[t1-p28]
-[t1-p29]
+![t1-p26](images/thread1/t1-p26.jpg)
+![t1-p27](images/thread1/t1-p27.jpg)
+![t1-p28](images/thread1/t1-p28.jpg)
+![t1-p29](images/thread1/t1-p29.jpg)
 
 There aren't many striking posters of the 'woleifei', because, as the myth goes, only the 'braves' do the striking. The closest we got are these, all of which are on the theme of the unity between the frontline and their more peaceful and rational brothers and sisters. 15/25
 
-[t1-p30]
-[t1-p31]
-[t1-p32]
-[t1-p33]
+![t1-p30](images/thread1/t1-p30.jpg)
+![t1-p31](images/thread1/t1-p31.jpg)
+![t1-p32](images/thread1/t1-p32.jpg)
+![t1-p33](images/thread1/t1-p33.jpg)
 
 The idea of distinct roles - think RPGs where you've tanks, DPS and healers - makes for a nice, powerful myth and helped when we were first organising. The braves defend us! The woleifeis support us! But they at times also restrict us from seeing the reality. 16/25
 
-[t1-p34]
+![t1-p34](images/thread1/t1-p34.jpg)
 
 The reality that the 'frontline' of resistance has changed. Students who join human chains. Housewives who shout out slogans at night. 'Gaifong's who protect kids and their neighborhoods form the HKPF. Musicians playing our anthem in a mall. They are all actively fighting. 17/25
 
-[t1-p35]
-[t1-p36]
-[t1-p37]
-[t1-p38]
+![t1-p35](images/thread1/t1-p35.jpg)
+![t1-p36](images/thread1/t1-p36.jpg)
+![t1-p37](images/thread1/t1-p37.jpg)
 
 The reality that the our 'braves' are not invulnerable superhumans. They get tired. They get depressed. They are not some anonymous 'black bloc' with no personality. They are just ordinary humans, faced with extraordinary circumstances. They can be us. They are us. 18/25
 
-[t1-p39]
-[t1-p40]
+![t1-p38](images/thread1/t1-p38.jpg)
+![t1-p39](images/thread1/t1-p39.jpg)
 
 'Braves' or 'woleifei's isn't so important anymore - HKPF arrests everyone anyway. Line btw 'protestor' and HK citizen also artificial by now- when singing a song, posting on FB, jogging at night can be considered offensive acts, daily life becomes an act of resistance. 19/25
 
-[t1-p40]
+![t1-p40](images/thread1/t1-p40.jpg)
 
 We have to let go of some of the myths we've built around ourselves and our movement. 'Braves'/'woleifei' distinction makes it easy for others to portray this as a movement driven by a few 'radical protestors', when in fact it's HK citizens resisting. 20/25
 
-[t1-p41]
+![t1-p41](images/thread1/t1-p41.jpg)
 
 We must let go of seeing those geared up as invincible protectors of our city. Not because we're ungrateful - so many of them have bled and cried for HK during this summer of smoke. 21/25
 
@@ -111,26 +110,26 @@ China as the country we know now has only really come into being in the last 3 d
 
 ... it means big 時代 changes are not impossible, that our 革命 may not be futile. After all, the Avengers found their 1 in 14mln chance. Luke saved his father. We must have hope, if not for ourselves, then for our stories to inspire all those to come who fight tyranny.  25/25
 
-[t1-p42]
+![t1-p42](images/thread1/t1-p42.png)
 
 ## Update, Oct 6, 2019
 
 UPDATE - Star Wars protest art: We've actually had a few more. "Darkness rises, and light to meet it" frames the HKPF as the dark side, HKers as the light, ready for a final showdown... or a platonic hand-touching session in a hut in front of a roaring fire 😬 (All from TG/ Insta)
 
-[t1-p43]
+![t1-p43](images/thread1/t1-p43.jpg)
 
 I have NO IDEA what this is. Is that *actually* Jesus with a lightsaber, protecting the back of one of our HK frontliners? Or is it an Obi-Wan who's let his beard grow out a bit? Either way, the pic is cute, and suggests god/the Force is with us. (From https://bit.ly/2IsTkaK)
 
-[t1-p44]
+![t1-p44](images/thread1/t1-p44.jpg)
 
 UPDATE - Avengers/superhero protest art: The antimask law's inspired some interesting pieces. This suggests it's akin to the Superhuman Registration Act which forces heroes to unmask. In which case, neither Iron Man nor Spidey shld look so dour but this is cool art, so shush! 🤓
 
-[t1-p45]
+![t1-p45](images/thread1/t1-p45.jpg)
 
 Things are dire, but we've kept our sense of humor. The left says antimask law means Iron Man now needs to take off his mask if he flies into HK. On the right, Thor is a frontline 'brave', and Cap is one of the peaceful woleifeis (hehe) - they must work together to save HK.
 
-[t1-p46]
-[t1-p47]
+![t1-p46](images/thread1/t1-p46.jpg)
+![t1-p47](images/thread1/t1-p47.jpg)
 
 ## Update, Nov 22, 2019
 
@@ -142,7 +141,7 @@ PS. Is that Captain Hong Kong?
 
 Source: TG
 
-[t1-p48]
+![t1-p48](images/thread1/t1-p48.jpg)
 
 ## Update, Nov 25, 2019
 
@@ -150,7 +149,7 @@ UPDATE: The district council elections are over, but we ain’t done avenging ye
 
 Source: TG
 
-[t1-p49]
+![t1-p49](images/thread1/t1-p49.jpg)
 
 ##(Jan 20, 2020)
 
@@ -160,7 +159,7 @@ UPDATE: Are the Avengers in a union?  Probably not, but this is the first we've 
 
 Source: TG
 
-[t1-p50]
+![t1-p50](images/thread1/t1-p50.png)
 
 ## Update, May 15, 2020
 
@@ -168,4 +167,4 @@ UPDATE: 😍 Ooooh. Star Wars continue to inspire! This is quite a picture - a n
 
 Source: stayfuckingcool - IG via TG
 
-[t1-p51]
+![t1-p51](images/thread1/t1-p51.jpg)
