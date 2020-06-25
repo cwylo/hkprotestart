@@ -9,6 +9,8 @@ Links to threads:
 5. [A Women’s Place is in The Resistance](https://cwylo.github.io/hkprotestart/thread5), Sep 24 2019. Depictions of women and femininity.
 6. [Democracy in Bloom](https://cwylo.github.io/hkprotestart/thread6), Sep 25 2019. Use of the bauhinia flower.
 7. [The Egg and the Promise](https://cwylo.github.io/hkprotestart/thread7), Sep 26 2019. Mental health and grief in the protest.
+8. [A Little Fall of Rain](https://cwylo.github.io/hkprotestart/thread8), Sep 27 2019. Umbrellas and umbrella imagery.
+9. Tears and teargas, Sep 28 2019.
 
 
 **Why aren't the artists credited?**
