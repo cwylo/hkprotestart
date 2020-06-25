@@ -1,23 +1,24 @@
-##Myth and myth-making in HK protest art: a thread 
+## Myth and myth-making in HK protest art: a thread 
+
 *(Sep 21, 2019)*
 
 HKers have been fighting for 3 mths, and we've seen how powerful modern myths can be. They frame our battles,  help us we see ourselves as a ppl, but also, they sometimes freeze solid a mvmt that's supposed to 'be water'. 1/25
 
 One modern myth we've gone to again and again is the Avengers. They appear here as a bit of a joke early on in mid June, after the govt unleashed tear gas because there were 'rioters'. We joked those few rioters must be superhuman to warrant such overreaction. 😂 2/25
 
-[t1-p1]
+![t1-p1](images/thread1/t1-p1.jpg)
 
 It then gets grim. These are from July - the 1st alludes to how Dr Strange 'beats' Dormammu by losing again and again. 2nd is from Endgame - the chance of winning is infinitesimal, and if we lose... So we have to win, whatever it takes. 3/25
 
-[t1-p2]
-[t1-p3]
+![t1-p2](images/thread1/t1-p2.jpg)
+![t1-p3](images/thread1/t1-p3.jpg)
 
 By Aug, HKers have *become* the Avengers, because no one was coming to our aid. We're heroes assembling to take on a titan. But sense of dread pervades - note that ref to Ragnorak. Thor comes to that conclusion after deciding he had to burn down his home to save the world. 4/25
 
-[t1-p4]
-[t1-p5]
-[t1-p6]
-[t1-p7]
+![t1-p4](images/thread1/t1-p4.jpg)
+![t1-p5](images/thread1/t1-p5.jpg)
+![t1-p6](images/thread1/t1-p6.jpg)
+![t1-p7](images/thread1/t1-p7.jpg)
 
 September, Avengers still here, especially Cap. His shield defends our frontline fighters. His words too. We've not given up, even after seeing our friends fail and fall 5 years ago. And we're here to fight. (That's a deep cut, whoever made that ‘permission' poster). 5/25
 
@@ -112,7 +113,7 @@ China as the country we know now has only really come into being in the last 3 d
 
 [t1-p42]
 
-##(Oct 6, 2019)
+## Update, Oct 6, 2019
 
 UPDATE - Star Wars protest art: We've actually had a few more. "Darkness rises, and light to meet it" frames the HKPF as the dark side, HKers as the light, ready for a final showdown... or a platonic hand-touching session in a hut in front of a roaring fire 😬 (All from TG/ Insta)
 
@@ -131,7 +132,7 @@ Things are dire, but we've kept our sense of humor. The left says antimask law m
 [t1-p46]
 [t1-p47]
 
-##(Nov 22, 2019)
+## Update, Nov 22, 2019
 
 UPDATE: The Avengers, earth's mightiest heroes, will beat Thanos with... the power of the vote? 
 
@@ -143,7 +144,7 @@ Source: TG
 
 [t1-p48]
 
-##(Nov 25, 2019)
+## Update, Nov 25, 2019
 
 UPDATE: The district council elections are over, but we ain’t done avenging yet. And now, the frontline knows there are people on their left... and their right, and above... Whatever it takes.
 
@@ -161,7 +162,7 @@ Source: TG
 
 [t1-p50]
 
-##(May 15, 2020)
+## Update, May 15, 2020
 
 UPDATE: 😍 Ooooh. Star Wars continue to inspire! This is quite a picture - a nod to our lasers/lightsabers, 'Be Water'/ Laamchau and HK's famous neon lights
 
