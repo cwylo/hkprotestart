@@ -2,4 +2,4 @@ This is intended as a mirror for protest art threads once hosted on Twitter, for
 
 Links to threads:
 
-[Myths and myth-making in the Hong Kong Protests](thread1), Sep 21 2019
+[Myths and myth-making in the Hong Kong Protests](https://cwylo.github.io/hkprotestart/thread1), Sep 21 2019
