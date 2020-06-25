@@ -22,17 +22,17 @@ By Aug, HKers have *become* the Avengers, because no one was coming to our aid. 
 
 September, Avengers still here, especially Cap. His shield defends our frontline fighters. His words too. We've not given up, even after seeing our friends fail and fall 5 years ago. And we're here to fight. (That's a deep cut, whoever made that ‘permission' poster). 5/25
 
-[t1-p8]
-[t1-p9]
-[t1-p10]
-[t1-p11]
+![t1-p8](images/thread1/t1-p4.jpg)
+![t1-p9](images/thread1/t1-p5.jpg)
+![t1-p10](images/thread1/t1-p6.jpg)
+![t1-p11](images/thread1/t1-p7.jpg)
 
 We tapped into Star Wars later. Started as a fun bit of trolling - in early Aug, HKPF arrested a student for buying laser pens, saying they're offensive weapons. 😂 From then on, laser pens (and occasionally toy lightsabers) became very much part of the protest and the art. 6/25
 
-[t1-p12]
-[t1-p13]
-[t1-p14]
-[t1-p15]
+![t1-p12](images/thread1/t1-p12.jpg)
+![t1-p13](images/thread1/t1-p13.jpg)
+![t1-p14](images/thread1/t1-p14.jpg)
+![t1-p15](images/thread1/t1-p15.jpg)
 
 The HK version of Tom Jung's iconic Star Wars poster. We are a new hope. China is the Death Star, the police is its enforcer, Vader, and we have tear gas canisters flying instead of X-wings. Note R2 has been unceremoniously replaced by a bin. I don’t know why either. 😂 7/25
 
