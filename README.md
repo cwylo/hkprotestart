@@ -6,8 +6,9 @@ Links to threads:
 2. [Cats and dogs](https://cwylo.github.io/hkprotestart/thread2), Sep 23 2019
 3. [Evangelion](https://cwylo.github.io/hkprotestart/thread3), Sep 23 2019
 4. [Delacroix](https://cwylo.github.io/hkprotestart/thread4), Sep 23 2019
-5. [A Women’s Place is in The Resistance](https://cwylo.github.io/hkprotestart/thread5), Sep 24 2019
-6. [Democracy in Bloom](https://cwylo.github.io/hkprotestart/thread6), Sep 25 2019
+5. [A Women’s Place is in The Resistance](https://cwylo.github.io/hkprotestart/thread5), Sep 24 2019. Depictions of women and femininity.
+6. [Democracy in Bloom](https://cwylo.github.io/hkprotestart/thread6), Sep 25 2019. Use of the bauhinia flower.
+7. [The Egg and the Promise](https://cwylo.github.io/hkprotestart/thread7), Sep 26 2019. Mental health and grief in the protest.
 
 
 **Why aren't the artists credited?**
