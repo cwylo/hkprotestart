@@ -14,7 +14,8 @@ Links to threads:
 10. [Yellow](https://cwylo.github.io/hkprotestart/thread10), Sep 28 2019. Symbology of the colour yellow.
 11. [Love in the Time of Chaos](https://cwylo.github.io/hkprotestart/thread11), Sep 28 2019. Romantic, fraternal, parental, patriotic love.
 12. [Being (Culturally) Chinese](https://cwylo.github.io/hkprotestart/thread12), Sep 29 2019. Use of Chinese cultural imagery.
-13. [Danger! Hard Hat Area]
+13. [Danger! Hard Hat Area](https://cwylo.github.io/hkprotestart/thread13), Sep 30 2019. Hard hats and protective imagery.
+14. [Dogs of War](https://cwylo.github.io/hkprotestart/thread14), Oct 1 2019. Depictions of police.
 
 
 
