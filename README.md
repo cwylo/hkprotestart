@@ -11,6 +11,7 @@ Links to threads:
 7. [The Egg and the Promise](https://cwylo.github.io/hkprotestart/thread7), Sep 26 2019. Mental health and grief in the protest.
 8. [A Little Fall of Rain](https://cwylo.github.io/hkprotestart/thread8), Sep 27 2019. Umbrellas and umbrella imagery.
 9. [Tears and Teargas](https://cwylo.github.io/hkprotestart/thread9), Sep 28 2019.
+10. [Yellow](https://cwylo.github.io/hkprotestart/thread10), Sep 28 2019. Symbology of the colour yellow.
 
 
 **Why aren't the artists credited?**
