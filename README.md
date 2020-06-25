@@ -7,6 +7,7 @@ Links to threads:
 3. [Evangelion in Hong Kong protest art](https://cwylo.github.io/hkprotestart/thread3), Sep 23 2019
 4. [Delacroix in Hong Kong](https://cwylo.github.io/hkprotestart/thread4), Sep 23 2019
 5. [Women in Hong Kong protest art](https://cwylo.github.io/hkprotestart/thread5), Sep 24 2019
+6. [Democracy in Bloom (use of the bauhinia flower in Hong Kong protest art)](https://cwylo.github.io/hkprotestart/thread6), Sep 25 2019
 
 
 **Why aren't the artists credited?**
