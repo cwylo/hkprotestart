@@ -16,7 +16,7 @@ Nothing can stop us, #5DemandsNot1Less
 
 Ed note: [this is the video in question.](https://twitter.com/rhokilpatrick/status/1176075324615839744) 
 
-![t3-v1](images/thread3/t3-v1.mp4)
+[![Alt text](https://img.youtube.com/vi/36nMTPX-N24/0.jpg)](https://www.youtube.com/watch?v=36nMTPX-N24)
 
 The EVA HK protest art is a weird lot because it's a bit incoherent. Understandable - NGE is tough to engage with. There's no good reason for why Unit 01 would say 'HKers add oil!'. Or why the 'publicity group' that makes protest art should be NERV. But it looks rad? 2/7
 
@@ -31,7 +31,7 @@ And because it looks rad, we see protest art - and Apple Daily! - take on the EV
 
 The inspired take is sadder. NGE is about children stripped of agency, forced to bear the sins of their fathers (and mothers) by fighting otherworldly creatures that rips them apart inside and out, so as to prevent a repeat of an apocalyptic event(...that escalated quickly!) 4/7
 
-![t3-v2](images/thread3/t3-v2.mp4)
+![t3-v2](images/thread3/t3-v2.gif)
 
 The painful history, the condescension of 'mother' Lam's 'they have no stake in society'... it's not hard to read the HK protest through the EVA prism. Especially since the Rebuild series suggest we're all just trapped in a never-ending cycle of violence and pain. 5/7
 
@@ -44,7 +44,7 @@ The inspired take is also hopeful? The original tv run ends with our main charac
 
 This message is important - lots of HKers are depressed. It's also vital for the mvmt - the last 3mths has shown us HK isn't a city that's dying, it's a city that wants to *live*. EVA aesthetic looks rad, sure, but with it, we're also crying out, affirming our will to be. 7/7
 
-![t3-v3](images/thread3/t3-v3.mp4)
+![t3-v3](images/thread3/t3-v3.gif)
 
 ## Update, Nov 15, 2019
 
