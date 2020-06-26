@@ -47,7 +47,7 @@ Below, more Pooh with Xi's face (& one with a bonus Mei!). This is nightmare fue
 
 ![t17-p16](images/thread17/t17-p16.jpg)
 ![t17-p17](images/thread17/t17-p17.jpg)
-![t17-p18](images/thread17/t17-p18.jpg)
+![t17-p19](images/thread17/t17-p19.jpg)
 
 More w/ Pooh's unsettling smile in the face of truly terrible acts. Oct 1 was the day the police shot a live round pt blank into a teenager's chest - Pooh here smiles on & in fact holds the bloodstained sickle, suggesting HKers all know who's really responsible.
 
