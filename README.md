@@ -17,6 +17,8 @@ Links to threads:
 13. [Danger! Hard Hat Area](https://cwylo.github.io/hkprotestart/thread13), Sep 30 2019. Hard hats and protective imagery.
 14. [Dogs of War](https://cwylo.github.io/hkprotestart/thread14), Oct 1 2019. Depictions of police.
 15. [Boiling Point](https://cwylo.github.io/hkprotestart/thread15), Oct 2 2019. Radicalization of protestors and water imagery.
+16. [Memes](https://cwylo.github.io/hkprotestart/thread16), Oct 2 2019.
+17. [Pooh Everywhere](https://cwylo.github.io/hkprotestart/thread17), Oct 3 2019.
 
 **Why aren't the artists credited?**
 
