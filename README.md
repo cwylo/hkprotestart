@@ -25,6 +25,10 @@ Links to threads:
 21. [Children of the Revolution](https://cwylo.github.io/hkprotestart/thread21), Oct 6 2019. Children and childhood in art, and their evolving role in the protests.
 22. [Stand with Hong Kong](https://cwylo.github.io/hkprotestart/thread22), Oct 6 2019. Short thread on the need for global solidarity with Hong Kong.
 23. [No News is Bad News](https://cwylo.github.io/hkprotestart/thread23), Oct 7 2019. Journalism and the importance of a free press.
+24. [The Most Cyberpunk City in the World](https://cwylo.github.io/hkprotestart/thread24), Oct 8 2019. The limitations of cyberpunk imagery in depicting the Hong Kong protests.
+25. [Every Voice Matters](https://cwylo.github.io/hkprotestart/thread25), Oct 10 2019. Gaming as a pop cultural touchstone in protest art and organization, as well as the increasing role of non-HK based artists and illustrators in pro-Hong Kong protest art.
+26. [Birdstrike](https://cwylo.github.io/hkprotestart/thread26), Oct 10 2019. The lion-bird as symbol of vigilantism.
+27. 
 
 **Why aren't the artists credited?**
 
@@ -33,6 +37,10 @@ For safety reasons, I have not included links to artists' source by default, exc
 **What about other Hong Kong protest art threads?**
 
 There are many very good threads or collections of Hong Kong protest art out there! I urge you to keep your own archives to keep them circulating. However, I decided that the focus of this particular project and archive will be on a single author's set of Hong Kong protest art threads - which is why I have not included threads linked by the original poster, that were created by another user.
+
+**Why keep the Twitter speak?**
+
+I have decided to lightly edit the original tweets, most obviously by removing the 'x/y' part numbers. However, I've also chosen to keep in all the contractions and emoji to reflect these pages' origins as Twitter threads. I have attempted to use blockquotes to signal retweets.
 
 **To-do**
 
