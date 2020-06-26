@@ -28,7 +28,8 @@ Links to threads:
 24. [The Most Cyberpunk City in the World](https://cwylo.github.io/hkprotestart/thread24), Oct 8 2019. The limitations of cyberpunk imagery in depicting the Hong Kong protests.
 25. [Every Voice Matters](https://cwylo.github.io/hkprotestart/thread25), Oct 10 2019. Gaming as a pop cultural touchstone in protest art and organization, as well as the increasing role of non-HK based artists and illustrators in pro-Hong Kong protest art.
 26. [Birdstrike](https://cwylo.github.io/hkprotestart/thread26), Oct 10 2019. The lion-bird as symbol of vigilantism.
-27. 
+27. [#metoo](https://cwylo.github.io/hkprotestart/thread27), Oct 10 2019. Sexual and physical assault by police, and protest responses.
+28. [The Weight of Words](https://cwylo.github.io/hkprotestart/thread28), Oct 12 2019. Cantonese neologisms.
 
 **Why aren't the artists credited?**
 
