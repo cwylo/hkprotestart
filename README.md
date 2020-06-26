@@ -31,7 +31,7 @@ Links to threads:
 27. [#metoo](https://cwylo.github.io/hkprotestart/thread27), Oct 10 2019. Sexual and physical assault by police, and protest responses.
 28. [The Weight of Words](https://cwylo.github.io/hkprotestart/thread28), Oct 12 2019. Cantonese neologisms.
 29. [Drakeposting](https://cwylo.github.io/hkprotestart/thread29), Oct 14 2019. Drake-centric memes.
-30. 
+30. [Devoured by Time](https://cwylo.github.io/hkprotestart/thread30), Oct 14 2019. Goya's *Saturn Devouring His Son* in Hong Kong protest art.
 
 **Why aren't the artists credited?**
 
