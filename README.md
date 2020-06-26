@@ -30,6 +30,8 @@ Links to threads:
 26. [Birdstrike](https://cwylo.github.io/hkprotestart/thread26), Oct 10 2019. The lion-bird as symbol of vigilantism.
 27. [#metoo](https://cwylo.github.io/hkprotestart/thread27), Oct 10 2019. Sexual and physical assault by police, and protest responses.
 28. [The Weight of Words](https://cwylo.github.io/hkprotestart/thread28), Oct 12 2019. Cantonese neologisms.
+29. [Drakeposting](https://cwylo.github.io/hkprotestart/thread29), Oct 14 2019. Drake-centric memes.
+30. 
 
 **Why aren't the artists credited?**
 
