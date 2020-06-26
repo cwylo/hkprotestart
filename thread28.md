@@ -16,12 +16,10 @@ But HKers hv embraced our complicated language & weaponised it as a protest tool
 ![t28-p5](images/thread28/t28-p5.jpg)
 ![t28-p6](images/thread28/t28-p6.jpg)
 
-We took it to some extremes. An effort to confound mainland 'spies' was to use Kongish, spelling out Canto words in Eng & throw in some Eng words for giggles. Problem: Canto has 9 tones - 'si' can take on at least 9 meanings. It indeed confounded & the effort lasted <48hrs 🤣
+We took it to some extremes. An effort to confound mainland 'spies' was to use Kongish, spelling out Canto words in Eng & throw in some Eng words for giggles. Problem: Canto has 9 tones - 'si' can take on at least 9 meanings. It indeed confounded & the effort lasted <48hrs 🤣 [^1]
 
 ![t28-p7](images/thread28/t28-p7.jpg)
 ![t28-p8](images/thread28/t28-p8.jpg)
 ![t28-p9](images/thread28/t28-p9.jpg)
 
-[^1] Footnote test one.
-
-[^1]: asdf
+[^1]: While Cantonese has two romanization systems, neither are commonly taught in Hong Kong schools.
