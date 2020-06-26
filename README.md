@@ -20,6 +20,8 @@ Links to threads:
 16. [Memes](https://cwylo.github.io/hkprotestart/thread16), Oct 2 2019.
 17. [Pooh Everywhere](https://cwylo.github.io/hkprotestart/thread17), Oct 3 2019.
 18. [Melted Iron](https://cwylo.github.io/hkprotestart/thread18), Oct 4 2019. Perceptions and depictions of the MTR.
+19. [MTR Posters](https://cwylo.github.io/hkprotestart/thread19), Oct 4 2019. MTR poster-inspired protest art.
+20. [Hope and Memory](https://cwylo.github.io/hkprotestart/thread20), Oct 5 2019.
 
 **Why aren't the artists credited?**
 
