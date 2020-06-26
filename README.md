@@ -24,7 +24,7 @@ Links to threads:
 20. [Hope and Memory](https://cwylo.github.io/hkprotestart/thread20), Oct 5 2019. Hong Kong's place in a global (art) history of protest.
 21. [Children of the Revolution](https://cwylo.github.io/hkprotestart/thread21), Oct 6 2019. Children and childhood in art, and their evolving role in the protests.
 22. [Stand with Hong kong](https://cwylo.github.io/hkprotestart/thread22), Oct 6 2019. Short thread on the need for global solidarity with Hong Kong.
-23. [No News is Bad News])https://cwylo.github.io/hkprotestart/thread23), Oct 7 2019. Journalism and the importance of a free press.
+23. [No News is Bad News](https://cwylo.github.io/hkprotestart/thread23), Oct 7 2019. Journalism and the importance of a free press.
 
 **Why aren't the artists credited?**
 
