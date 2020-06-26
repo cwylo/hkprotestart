@@ -22,6 +22,7 @@ Links to threads:
 18. [Melted Iron](https://cwylo.github.io/hkprotestart/thread18), Oct 4 2019. Perceptions and depictions of the MTR.
 19. [MTR Posters](https://cwylo.github.io/hkprotestart/thread19), Oct 4 2019. MTR poster-inspired protest art.
 20. [Hope and Memory](https://cwylo.github.io/hkprotestart/thread20), Oct 5 2019. Hong Kong's place in a global (art) history of protest.
+21. [Children of the Revolution](https://cwylo.github.io/hkprotestart/thread21), Oct 6 2019. Children and childhood in art, and their evolving role in the protests.
 
 **Why aren't the artists credited?**
 
