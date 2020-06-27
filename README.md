@@ -33,7 +33,8 @@ Links to threads:
 29. [Drakeposting](https://cwylo.github.io/hkprotestart/thread29), Oct 14 2019. Drake-centric memes.
 30. [Devoured by Time](https://cwylo.github.io/hkprotestart/thread30), Oct 14 2019. Goya's *Saturn Devouring His Son* in Hong Kong protest art.
 31. [Give Me Liberty](https://cwylo.github.io/hkprotestart/thread31), Oct 14 2019. Lady Liberty.
-32. 
+32. [Bare Necessities: Our 5+1 Demands](https://cwylo.github.io/hkprotestart/thread32), Oct 16 2019. Evolution of the Five Demands.
+33. 
 
 **Why aren't the artists credited?**
 
