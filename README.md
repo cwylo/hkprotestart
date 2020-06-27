@@ -34,7 +34,8 @@ Links to threads:
 30. [Devoured by Time](https://cwylo.github.io/hkprotestart/thread30), Oct 14 2019. Goya's *Saturn Devouring His Son* in Hong Kong protest art.
 31. [Give Me Liberty](https://cwylo.github.io/hkprotestart/thread31), Oct 14 2019. Lady Liberty.
 32. [Bare Necessities: Our 5+1 Demands](https://cwylo.github.io/hkprotestart/thread32), Oct 16 2019. Evolution of the Five Demands.
-33. 
+33. ['5 Demands!' IN MEMES](https://cwylo.github.io/hkprotestart/thread33), Oct 16 2019.
+34. [It’s Art (& Crafts)!](https://cwylo.github.io/hkprotestart/thread34), Oct 19 2019.
 
 **Why aren't the artists credited?**
 
@@ -51,5 +52,6 @@ I have decided to lightly edit the original tweets, most obviously by removing t
 **To-do**
 
 - [ ] Content complete
+- [ ] Double-check for removing credits after Jun 30
 - [ ] Redo alternate text
 - [ ] Commentary
