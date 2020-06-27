@@ -38,7 +38,9 @@ Links to threads:
 34. [It’s Art (& Crafts)!](https://cwylo.github.io/hkprotestart/thread34), Oct 19 2019.
 35. [The Horror](https://cwylo.github.io/hkprotestart/thread35), Oct 20 2019. Use of horror imagery.
 36. [Yuen Long 721](https://cwylo.github.io/hkprotestart/thread36), Oct 21 2019. Retrospective thread with 721 commemorative updates.
-37. [You May Say That I'm A Dreamer](https://cwylo.github.io/hkprotestart/thread57), Oct 21 2019. Lennon walls.
+37. [You May Say That I'm A Dreamer](https://cwylo.github.io/hkprotestart/thread37), Oct 21 2019. Lennon walls.
+38. [Volunteer Fire Department](https://cwylo.github.io/hkprotestart/thread38), Oct 24 2019. Teargas dousing methods.
+39. [“It Aways Fits. Eventually.”](https://cwylo.github.io/hkprotestart/thread39), Oct 26 2019. Masks and respirators.
 
 **Why aren't the artists credited?**
 
