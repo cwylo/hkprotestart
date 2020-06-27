@@ -66,3 +66,40 @@ So when the Anti-Mask Law came into effect on 5 Oct, HKers were livid. Our art r
 
 From this pt, masks became less abt stripping of identity as declaration of one. Masks are displays of HKers' defiance of unjust laws- frontliner w/ 'pig snout' or woleifei w/ Pooh mask- we're in the same boat now. In our art, we are many, but we are also as one, resisting.
 
+![](images/thread39/t39-p32.jpg)
+![](images/thread39/t39-p33.jpg)
+![](images/thread39/t39-p34.jpg)
+![](images/thread39/t39-p35.jpg)
+
+If this sounds a bit like the end of 'V for Vendetta'... yes. The Guy Fawkes mask exploded in our protest art late Sep & never left, largely bcos HKers are sympathetic to the idea that a mask holds power. The power to defy, to unite... to become anonymous & unsung heroes.
+
+![](images/thread39/t39-p36.jpg)
+![](images/thread39/t39-p37.jpg)
+![](images/thread39/t39-p38.jpg)
+![](images/thread39/t39-p39.jpg)
+
+But HKers are just an ordinary people. No one asked for this. No one enjoys the teargas buffets, and no one likes being behind a mask - they're hot, sticky & uncomfortable... 
+
+We just happen to be born into a time of chaos. Which means we have certain responsibilities.
+
+![](images/thread39/t39-p40.jpg)
+![](images/thread39/t39-p41.jpg)
+![](images/thread39/t39-p42.jpg)
+![](images/thread39/t39-p43.jpg)
+
+HKers are an ordinary ppl, disenfranchised yet still empowered. Turns out we've bn heroes all along, choosing from the start to put on our ill-fitting masks to bear our responsibilities to this age. And as mths wore on & we grew, we chose to do it, again & again & again.
+
+![](images/thread39/t39-p44.jpg)
+![](images/thread39/t39-p45.jpg)
+![](images/thread39/t39-p46.jpg)
+![](images/thread39/t39-p47.jpg)
+
+HKers are an ordinary ppl who'll resist w/ heroic courage, as regular ppl do in tough times. No matter what govt does, our defiant masks stay on- they allow us to heal, put out fires, shed light on the truth... & go on living our regular lives, as heroes do in tough times.
+
+![](images/thread39/t39-p48.jpg)
+
+##Update, May 27 2020
+
+At the start of the mvt there were a lot of pamphlets on various respirator combos one can get for withstanding teargas, like the one below from Aug. We've seen these reappear in recent days, a sign that HKers are prepared to walk into the fire & smoke once again.
+
+![](images/thread39/t39-p49.jpg)

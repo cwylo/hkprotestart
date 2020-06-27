@@ -41,6 +41,8 @@ Links to threads:
 37. [You May Say That I'm A Dreamer](https://cwylo.github.io/hkprotestart/thread37), Oct 21 2019. Lennon walls.
 38. [Volunteer Fire Department](https://cwylo.github.io/hkprotestart/thread38), Oct 24 2019. Teargas dousing methods.
 39. [“It Aways Fits. Eventually.”](https://cwylo.github.io/hkprotestart/thread39), Oct 26 2019. Masks and respirators.
+40. [Some Like It Hot](https://cwylo.github.io/hkprotestart/thread40), Oct 30 2019. Thirst 💦👀
+41. 
 
 **Why aren't the artists credited?**
 
