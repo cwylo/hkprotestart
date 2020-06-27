@@ -36,6 +36,9 @@ Links to threads:
 32. [Bare Necessities: Our 5+1 Demands](https://cwylo.github.io/hkprotestart/thread32), Oct 16 2019. Evolution of the Five Demands.
 33. ['5 Demands!' IN MEMES](https://cwylo.github.io/hkprotestart/thread33), Oct 16 2019.
 34. [It’s Art (& Crafts)!](https://cwylo.github.io/hkprotestart/thread34), Oct 19 2019.
+35. [The Horror](https://cwylo.github.io/hkprotestart/thread35), Oct 20 2019. Use of horror imagery.
+36. [Yuen Long 721](https://cwylo.github.io/hkprotestart/thread36), Oct 21 2019. Retrospective thread with 721 commemorative updates.
+37. [You May Say That I'm A Dreamer](https://cwylo.github.io/hkprotestart/thread57), Oct 21 2019. Lennon walls.
 
 **Why aren't the artists credited?**
 
