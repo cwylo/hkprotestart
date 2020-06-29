@@ -54,8 +54,9 @@ Links to threads:
 
 Non-threaded:
 * [Gear up!](https://cwylo.github.io/hkprotestart/gearup), May 30 2020
+* * [Memeing for Democracy](https://cwylo.github.io/hkprotestart/dememe), Jun 27 2020
 * [Text-only threads](https://cwylo.github.io/hkprotestart/textthreads)
-* [Memeing for Democracy](https://cwylo.github.io/hkprotestart/dememe), Jun 27 2020
+
 
 **Why aren't the artists credited?**
 
@@ -71,7 +72,7 @@ I have decided to lightly edit the original tweets, most obviously by removing t
 
 **To-do**
 
-- [ ] Content complete
+- [x] Content complete (of main thread index)
 - [ ] Double-check for removing credits after Jun 30
 - [ ] Redo alternate text
 - [ ] Commentary

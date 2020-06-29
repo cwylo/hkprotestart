@@ -21,4 +21,17 @@ As someone who's vowed to catalogue everything ,warts & all, I made myself look 
 
 I won't subject any of you to them.
 
-##
+##On the intended audience
+Jun 25 2020
+
+I notice there has been a growing Discourse on this topic within HK Twitter, so here's my 2 cents.
+
+But also to our friends outside HK, I think it's good to point out for every pamphlet & art you see on here, there are 100s that circulate locally that's... well, just for us.
+
+> Canto tweets are important!
+
+> Not all 文宣 is directed towards outsiders. Most is just for us - to let us know that we're not alone, that we are loved in this fight. 
+
+> Do what feels right for you. 🙂
+
+> I just ♥ your puns & really want the world to know you're a funny duck, hehe

@@ -135,7 +135,7 @@ And there's nothing wrong with that.
 ![](images/dememe/dememe-p68.jpg)
 ![](images/dememe/dememe-p69.jpg)
 
-But because of the nature of the protest art scene, it's even more important that we support our artists where we can. If artists sell art, go buy. https://cccyc.hk has a handy directory of pro-democracy artists who're open for business. 
+But because of the nature of the protest art scene, it's even more important that we support our artists where we can. If artists sell art, go buy. [cccyc.hk](https://cccyc.hk/) has a handy directory of pro-democracy artists who're open for business. 
 
 Don't talk the talk. Walk.
 
