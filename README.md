@@ -1,9 +1,39 @@
 This is intended as a mirror for protest art threads once hosted on Twitter, for future academic or archival use.
 
-![](images/uwu1.jpg)
-![](images/uwu2.jpg)
+A closing statement from the original account.
 
-Links to threads:
+> Proto-uwu was born on July 14, after the HK police spilt blood at New Town Plaza, the local mall where I spent most of my childhood. From following the 'publicity material' closely, I somehow found myself lurking in the translation group, to not-so-lurking, to... well.
+
+> Fast forward to Sept, when I was part of a discussion on Telegram with some fellow HKers about the state of the movement's image abroad, why it felt like we were screaming into the void, adn what we can do better. As with all things when HKers are involved, the debate got heated and w were ready to fistfight. And then -
+
+> "I just want to be seen as human."
+
+> The message popped up on the chat. It was from one fo the anonymous members who had been a front-liner. They went on to explain how they *really* wanted to put a cute sticker on their helmet, so that for foreign journalists who interview them, it would show there's a personality - and a *person* - underneath the black uniform and respirator. Sure, a sticker might make them more easily identifiable, but it would be worth it to have a bit of dignity.
+
+> For days, I could not get that damn sticker out of my head, nor their words -
+
+> "I just want to be seen as human."
+
+> I never got that front-liner's name. Like many of the people I've 'come across' within the movement, I don't know who they are, how old they are, what they do, where they are... but I know why all these people fight. It was for the most human thing - for a chance to be heard, for some meaning in words, for the freedom of birds. 
+
+> From that point on, uwu started making use of the various posters, art and pamphlets HKers have mustered all their amazing creativity to produce, to make our foreign friends understand and empathise with our very human hopes and fears. And by accident, before I entirely knew what I was doing, uwu also became a sociologist/historian/art critic rolled into one. It's been wild.
+
+> These last few weeks have been very taxing emotionally. Apart from the looming darkness, there was a point when I realised the values I cherished and my worldview may be fundamentally different from those I am fighting alongside. That potentially, in some people's visions for a new HK, someone like me won't belong.
+
+> It also made me feel guilty. For so long, I've shied away from criticising the more unsavoury side of HK protest art and the movement itself - the sexism, racism, and homophobia - telling myself that it is not representative of HKers. But if that's the case, one might as well argue that the bright, hopeful narratives I've painted of the movement must equally be non-representative. The truth is, both sides are us.
+
+> If we remove the veneer that a carefully curated-protest art collection creates, we're left with human beings. Humans who we may not necessarily agree with politically. Humans who may be racist. Humans who may be very ignorant about a lot of things. Humans who are likely much smarter than us. Humans who we may not really like. Humans we may love. All flawed. But all nonetheless deserving of rights and democracy and freedoms, no matter what hell we may have put each other through over the last few months.
+
+> This is my compass. I don't know where it will lead me or a  lot of us who over the course of the next few weeks and months, will be leaving Twitter, and some, leaving HK. My biggest regret deactivating is that I will probably never get to meet the many friends I've made on here in person. But... they are also my biggest hope. To think - that so many HKers and friends, with fire in our hearts, scattered but safe, all still holding onto our collective dream! So many young activists who've chosen to rise up! If a single spark can start a prairie fire, imagine the conflagration this new generation can light up! ...
+
+> The young people will win.
+
+> But before that comes to pass, I hope everyone stay safe. I wish to thank all the artists, crafters, photographers, writers, copy writers, editors, translators, etc. who have created basically everything you've seen in my threads. If I made you feel anything, it is because of their words and creation - all credit to their tireless work. I wish also to thank friends and allies who've helped boost our message these past few months - it is very much appreciated.
+
+*Jun 29, 2020, a day before the National Security Legislation went into effect.*
+([source one](images/uwu1.jpg), [source two](images/uwu2.jpg))
+
+#Links to threads:
 
 1. [Myths and myth-making](https://cwylo.github.io/hkprotestart/thread1), Sep 21 2019
 2. [Cats and dogs](https://cwylo.github.io/hkprotestart/thread2), Sep 23 2019
@@ -54,9 +84,10 @@ Links to threads:
 
 Non-threaded:
 * [Gear up!](https://cwylo.github.io/hkprotestart/gearup), May 30 2020
-* * [Memeing for Democracy](https://cwylo.github.io/hkprotestart/dememe), Jun 27 2020
+* [Memeing for Democracy](https://cwylo.github.io/hkprotestart/dememe), Jun 27 2020
 * [Text-only threads](https://cwylo.github.io/hkprotestart/textthreads)
 
+##Frequently Asked Questions
 
 **Why aren't the artists credited?**
 
