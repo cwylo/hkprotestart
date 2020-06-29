@@ -46,6 +46,8 @@ Links to threads:
 42. [Remember, Remember](https://cwylo.github.io/hkprotestart/thread42), Nov 3 2019. Use of Guy Fawkes mask and *V for Vendetta*.
 43. [An Eye for an Eye](https://cwylo.github.io/hkprotestart/thread43), Nov 10 2019. The blinding of a female protest medic.
 44. [Disband the HK Police Force](https://cwylo.github.io/hkprotestart/thread44), Nov 10 2019.
+45. [On War & Violence](https://cwylo.github.io/hkprotestart/thread45), Nov 12 2019. The Siege of CUHK (and PolyU).
+46. [American Chopper Memes](https://cwylo.github.io/hkprotestart/thread46), Nov 13 2019.
 
 **Why aren't the artists credited?**
 
