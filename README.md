@@ -49,6 +49,10 @@ Links to threads:
 45. [On War & Violence](https://cwylo.github.io/hkprotestart/thread45), Nov 12 2019. The Siege of CUHK (and PolyU).
 46. [American Chopper Memes](https://cwylo.github.io/hkprotestart/thread46), Nov 13 2019.
 
+Non-threaded:
+* [Gear up!](https://cwylo.github.io/hkprotestart/gearup), May 30 2020
+* [Text-only threads](https://cwylo.github.io/hkprotestart/textthreads)
+
 **Why aren't the artists credited?**
 
 For safety reasons, I have not included links to artists' source by default, except for those that have explicitly noted they want their social media accounts or other details spread.
