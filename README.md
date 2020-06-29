@@ -44,8 +44,8 @@ Links to threads:
 40. [Some Like It Hot](https://cwylo.github.io/hkprotestart/thread40), Oct 30 2019. Thirst 💦👀
 41. [The Revolutionary Bestiary](https://cwylo.github.io/hkprotestart/thread41), Nov 2 2019.
 42. [Remember, Remember](https://cwylo.github.io/hkprotestart/thread42), Nov 3 2019. Use of Guy Fawkes mask and *V for Vendetta*.
-43. [An Eye for an Eye](https://cwylo.gitbuh.io/hkprotestart/thread43), Nov 10 2019. The blinding of a female protest medic.
-44. 
+43. [An Eye for an Eye](https://cwylo.github.io/hkprotestart/thread43), Nov 10 2019. The blinding of a female protest medic.
+44. [Disband the HK Police Force](https://cwylo.github.io/hkprotestart/thread44), Nov 10 2019.
 
 **Why aren't the artists credited?**
 
