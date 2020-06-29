@@ -1,5 +1,8 @@
 This is intended as a mirror for protest art threads once hosted on Twitter, for future academic or archival use.
 
+![](images/uwu1.jpg)
+![](images/uwu2.jpg)
+
 Links to threads:
 
 1. [Myths and myth-making](https://cwylo.github.io/hkprotestart/thread1), Sep 21 2019
@@ -52,6 +55,7 @@ Links to threads:
 Non-threaded:
 * [Gear up!](https://cwylo.github.io/hkprotestart/gearup), May 30 2020
 * [Text-only threads](https://cwylo.github.io/hkprotestart/textthreads)
+* [Memeing for Democracy](https://cwylo.github.io/hkprotestart/dememe), Jun 27 2020
 
 **Why aren't the artists credited?**
 
