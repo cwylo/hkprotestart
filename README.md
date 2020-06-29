@@ -42,7 +42,10 @@ Links to threads:
 38. [Volunteer Fire Department](https://cwylo.github.io/hkprotestart/thread38), Oct 24 2019. Teargas dousing methods.
 39. [“It Aways Fits. Eventually.”](https://cwylo.github.io/hkprotestart/thread39), Oct 26 2019. Masks and respirators.
 40. [Some Like It Hot](https://cwylo.github.io/hkprotestart/thread40), Oct 30 2019. Thirst 💦👀
-41. 
+41. [The Revolutionary Bestiary](https://cwylo.github.io/hkprotestart/thread41), Nov 2 2019.
+42. [Remember, Remember](https://cwylo.github.io/hkprotestart/thread42), Nov 3 2019. Use of Guy Fawkes mask and *V for Vendetta*.
+43. [An Eye for an Eye](https://cwylo.gitbuh.io/hkprotestart/thread43), Nov 10 2019. The blinding of a female protest medic.
+44. 
 
 **Why aren't the artists credited?**
 
