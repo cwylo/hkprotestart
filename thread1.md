@@ -87,14 +87,18 @@ More posters of the 'braves' in HK. A crew of masked and geared up young people,
 
 There aren't many striking posters of the 'woleifei', because, as the myth goes, only the 'braves' do the striking. The closest we got are these, all of which are on the theme of the unity between the frontline and their more peaceful and rational brothers and sisters. 
 
-![t1-p30](images/thread1/t1-p30.jpg)
-![t1-p31](images/thread1/t1-p31.jpg)
-![t1-p32](images/thread1/t1-p32.jpg)
-![t1-p33](images/thread1/t1-p33.jpg)
+![A very stylized yellow, black and white drawing of two faces, one in hard hat and respirator to represent a frontline brave, and one in a surgical mask for the 'woleifei'. The text reads: Together we will win.](images/thread1/t1-p30.jpg)
+![Digitally altered photo in two halves. On the left is an image of a frontline brave in a hard hat, goggles and respirator. The Chinese character "brave" is behind him. On the right is an image of a protestor in a baseball cap and surgical mask waving a flag, on which is the slogan "Liberate Hong Kong, Revolution of our Times" written in Chinese. Behind this image is the Chinese character "Peace". Down the middle, "WE CONNECT" is written vertically. At the bottom is a caption reading "Six demands, not one less" in Chinese. ](images/thread1/t1-p31.jpg)
+*Left background: "Brave". Right background: "Peaceful". On the flag is "Liberate Hong Kong, Revolution of Our Times." At the bottom, "Six demands, not one less", referring to the additional demand of abolishing the Hong Kong police.*
+![An illustration depicting a peaceful woleifei and brave yungmo protestor standing next to each other, holding hands in a human chain. Text across the top reads: We connect. Underneath that, in Chinese: "Not even a nuclear explosion would sever us."](images/thread1/t1-p32.jpg)  
+*Chinese reads: "Not even a nuclear explosion would sever us."*
+![A cartoon of a frontline brave and woleifei protestor combining their powers to go superpowered, advertising a march on August 18. Text in Chinese reads: If you can come, you're a Hong Konger!](images/thread1/t1-p33.jpg)
+*Text in Chinese reads: Those who can come are all Hong Kongers!*
 
 The idea of distinct roles - think RPGs where you've tanks, DPS and healers - makes for a nice, powerful myth and helped when we were first organising. The braves defend us! The woleifeis support us! But they at times also restrict us from seeing the reality. 
 
-![t1-p34](images/thread1/t1-p34.jpg)
+![A grid of illustrations portraying eight "types" of protestor: the Logistics Group is represented by a surgical mask and cardboard box of supplies. The Journalist with press helmet and vest. First Aider with medical vest. Social Worker with ID badge and phone. Legislative Councillor with ID badge and megaphone. Peaceful Protestor with cap and surgical mask. Publicity group with laptop. Bravest Protestor with hard hat, goggles and respirator. In the center is a white bauhinia icon on a yellow background, and text reading: Either the way, we share the same goal. Chinese text: No withdrawing (support), no scattering, no leaving, no abandoning.](images/thread1/t1-p34.jpg)  
+*Chinese text: No withdrawing (support), no scattering, no leaving, no abandoning.*
 
 The reality that the 'frontline' of resistance has changed. Students who join human chains. Housewives who shout out slogans at night. 'Gaifong's who protect kids and their neighborhoods form the HKPF. Musicians playing our anthem in a mall. They are all actively fighting. 
 
