@@ -1,4 +1,4 @@
-#Memeing for Democracy
+# Memeing for Democracy
 *Jun 27 2020*
 
 Via the various HK protest memes that have appeared over the last year, we'll explore the production, *re*production & dissemination of protest art… 

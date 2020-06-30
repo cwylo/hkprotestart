@@ -1,4 +1,4 @@
-## A Women’s Place is in The Resistance - a #HongKong protest art thread
+# A Women’s Place is in The Resistance - a #HongKong protest art thread
 *Sep 24, 2019*
 
 While HK govt's depiction of women in the movt has reeked of misogyny - they can only be mothers, sluts or virgins - HK art shows a fuller spectrum of womanhood and what female righteous anger looks like. 1/10

@@ -1,4 +1,4 @@
-#Drakeposting
+# Drakeposting
 a (ridiculous & short) #HongKong protest art thread
 
 *Oct 14 2019*
@@ -37,7 +37,7 @@ Pepe alert! Clarification for those abroad: the frog doesn't carry the same alt-
 ![](images/thread29/t29-p12.jpg)
 ![](images/thread29/t29-p13.jpg)
 
-##Update, Jan 25 2020
+## Update, Jan 25 2020
 
 UPDATE: Come on, we know Drake memes never stop. The one below from November is about boycotting pro-CCP, 'blue' shops, and supporting the #YellowEconomicCircle 😊
 

@@ -1,4 +1,4 @@
-#Disband the HK Police Force
+# Disband the HK Police Force
 *Nov 10, 2019*
 
 Early Oct, I wrote abt a 'radical idea' of disbanding HKPF - 6 weeks later, it's become, sometimes, part of the HK mvmt's main demands. We look at our protest art to understand how we got to where we are today. 

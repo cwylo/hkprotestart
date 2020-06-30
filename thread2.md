@@ -1,4 +1,4 @@
-## Cats and dogs in #HongKong protest art: a thread
+# Cats and dogs in #HongKong protest art: a thread
 
 *Sep 23, 2019*
 

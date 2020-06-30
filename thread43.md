@@ -1,4 +1,4 @@
-#An Eye for an Eye
+# An Eye for an Eye
 *Nov 10 2019*
 
 As HKers reel from Chow's death, it's worth looking at an earlier collective trauma- HKPF shooting a volunteer in the eye- to see how art immortalises & spreads HKer's righteous rage, & what we can learn from the episode.

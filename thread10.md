@@ -1,4 +1,4 @@
-## Yellow
+# Yellow
 *Sep 28, 2019*
 
 Yellow is the colour of the HK democracy mvmt, and has been for many yrs, representing desire for suffrage. Our art is steeped in yellow and all that it implies, a symbol for where we came from, and where we hope to go. 1/8

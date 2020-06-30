@@ -1,4 +1,4 @@
-#American Chopper Meme
+# American Chopper Meme
 *Nov 13 2019*
 
 Angry men shouting, neither getting their pt across, & then someone throws a chair - captures the mvmt perfectly.  We look at the times the meme has appeared to see all the things that hv made us mad since June. 
@@ -39,7 +39,7 @@ And why Jnr throws a damn chair.
 
 ![](images/thread46/t46-p8.jpg)
 
-##Update, Jan 29 2020
+## Update, Jan 29 2020
 
 We now have this version of the American Chopper meme with Lam and LinPig arguing about the merits of closing the border because of #coronaravirus. As you would expect, a chair gets thrown.
 

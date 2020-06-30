@@ -1,4 +1,4 @@
-#Yuen Long 721
+# Yuen Long 721
 *Oct 21 2019*
 
 It's 3 months since 21 July, the 1st major turning pt in the mvmt. It changed irrevocably the way HKers think about the HKPF, the MTR, their sense of security... We revisit the instances it popped up in our art threads.

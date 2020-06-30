@@ -91,7 +91,7 @@ Non-threaded:
 
 **Why aren't the artists credited?**
 
-For safety reasons, I have not included links to artists' source by default, except for those that have explicitly noted they want their social media accounts or other details spread.
+For safety reasons, I have not included links to artists' source by default, except for those that have explicitly noted they want their social media accounts or other details spread. If the art in question still exists on the artist's social media, their watermarks stay. If not, they are removed. I want this to be as easy to deny as possible.
 
 **What about other Hong Kong protest art threads?**
 

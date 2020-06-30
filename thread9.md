@@ -1,4 +1,4 @@
-## Tears and Teargas
+# Tears and Teargas
 *Sep 28, 2019*
 
 Teargas has become ubiquitous imagery. But as HKers learn to live with gas seeping into our homes & everyday lives, our art still cries out - this is not normal, *cannot* be normal, that we must find a way out of the fog. 1/7

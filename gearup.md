@@ -1,4 +1,4 @@
-#Gear up!
+# Gear up!
 *May 30 2020*
 
 We take a look at how HK protest art portrays the protective gear HKers have to employ to defend against teargas and bullets in their pro-democracy movement.

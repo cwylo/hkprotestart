@@ -1,4 +1,4 @@
-#Give Me Liberty
+# Give Me Liberty
 *Oct 14 2019*
 
 Lady Liberty has become a potent symbol for HKer's fight for democracy, borne out of need to update our ideals for these revolting times. We trace the historical artistic influences to understand the mvmt's present & future.

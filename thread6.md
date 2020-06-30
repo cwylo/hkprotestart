@@ -1,4 +1,4 @@
-## Democracy in Bloom
+# Democracy in Bloom
 *Sep 25, 2019*
 
 The bauhinia has long been a symbol of the city - a made-in-HK hybrid that's neither of the West nor the East. As a golden trophy for the CCP, it was a hated symbol, but HKers have in recent mths reclaimed it for their own. 1/9

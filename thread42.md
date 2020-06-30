@@ -1,4 +1,4 @@
-#Remember, Remember
+# Remember, Remember
 *Nov 3 2019*
 
 Guy Fawkes masks are ubiquitous in the HK mvmt. We look at protest art to see how its embrace has been less abt an engagement w/ the politics of the source materials, & more abt the legacy HKers want to leave to history.

@@ -1,4 +1,4 @@
-#Devoured by Time
+# Devoured by Time
 *Oct 14 2019*
 
 Goya’s Saturn Devouring His Son’ has been referenced a few times in the protest art, and highlights the tension between the regime's patrimonial condescension and HKers' awoken sense of self & independence.

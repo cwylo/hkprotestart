@@ -151,7 +151,7 @@ New word mashes describe new realities, so this one hurts, bcos it shld not *nee
 
 ![](images/thread28/t28-p53.jpg)
 
-##Update, Feb 18 2020
+## Update, Feb 18 2020
 
 It’s nearly 7 mths since 21 Jul, and this word mash has unfortunately stayed as applicable as ever. How many of these characters can you see?
 
@@ -163,7 +163,7 @@ It’s nearly 7 mths since 21 Jul, and this word mash has unfortunately stayed a
 
 ![](images/thread28/t28-p54.jpg)
 
-##Update, Jun 1 2020
+## Update, Jun 1 2020
 
 UPDATE: Some more striking graffitied word mash spotted around Prince Edward.
 

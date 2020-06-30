@@ -1,4 +1,4 @@
-#“It Aways Fits. Eventually.”
+# “It Aways Fits. Eventually.”
 *Oct 26 2019*
 
 HKer's masks & respirators for braving teargas hv become synonymous with our pro-democracy mvmt. We trace the art to see how the masks hv evolved in use, & w/ them how new heroes hv arisen from an ordinary ppl. 
@@ -98,7 +98,7 @@ HKers are an ordinary ppl who'll resist w/ heroic courage, as regular ppl do in 
 
 ![](images/thread39/t39-p48.jpg)
 
-##Update, May 27 2020
+## Update, May 27 2020
 
 At the start of the mvt there were a lot of pamphlets on various respirator combos one can get for withstanding teargas, like the one below from Aug. We've seen these reappear in recent days, a sign that HKers are prepared to walk into the fire & smoke once again.
 

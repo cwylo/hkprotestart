@@ -1,4 +1,4 @@
-#Volunteer Fire Department
+# Volunteer Fire Department
 *Oct 24 2019*
 
 HKers have been dousing teargas for a few months now. Let’s look at our firefighters' gear, methods, & tips for those affected by tear gas. 
@@ -127,7 +127,7 @@ Tell your hoomin to take you away from the affected area immediately. And make t
 ![](images/thread38/t38-p42.jpg)
 ![](images/thread38/t38-p43.jpg)
 
-##Update, Nov 14 2019
+## Update, Nov 14 2019
 
 HKers have been eating teargas for months now, and some health effects are starting to manifest. We also have a better idea of some of the toxic stuff that gets released - and *stays on stuff* - so, some new materials on how to clean up have been released.
 

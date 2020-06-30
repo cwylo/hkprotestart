@@ -1,4 +1,4 @@
-#The Revolutionary Bestiary
+# The Revolutionary Bestiary
 *Nov 2 2019*
 
 "In the year of 2019, the HK Resistance by sheer will summoned a variety of creatures great & small, to protect & guide them. In this bestiary, we highlight those that had some bite."
@@ -116,7 +116,7 @@ After mths at this, we know who we are, what we want now. HKers are small like t
 
 ![](images/thread41/t41-p50.jpg)
 
-##Update, Nov 29 2019
+## Update, Nov 29 2019
 
 The Quiet Chicken (靜靜雞 / 靜雞雞)
 
@@ -133,7 +133,7 @@ The Chicken's special power is discretion. Its name is a play on the Canto phras
 ![](images/thread41/t41-p56.jpg)
 ![](images/thread41/t41-p57.jpg)
 
-##Update, Dec 2 2019
+## Update, Dec 2 2019
 
 We have more Chicken.
 
@@ -145,26 +145,26 @@ Source: << not telling you>>
 ![](images/thread41/t41-p59.png)
 ![](images/thread41/t41-p60.jpg)
 
-##Update, Dec 20 2019
+## Update, Dec 20 2019
 
 A family picture of HK's divine beasts! We have LionBird, Long Dragon, Strike Eagle, Quiet Chick, Meerkat (no, it really should be Mongoose), and also Happy Fish, which sounds like "raining" in Canto, and... well when it 'rains', better have your umbrella ready!
 
 ![](images/thread41/t41-p61.png)
 
-##Update, Feb 25 2020
+## Update, Feb 25 2020
 
 We’ve not had a good piece of Divine Beasts art in a while! Quiet Quiet Chicken manages to hold its own among the dragons and griffins and somehow look heroic 😅 - bravo to the artist
 
 ![](images/thread41/t41-p62.jpg)
 
-##Update, Apr 29 2020
+## Update, Apr 29 2020
 
 UPDATE: We finally have a proper bestiary compiled in Chinese! 'Happy fish' still confuses me a tad, but it's nice to see it in the mix! 🐠🐠🐠
 
 ![](images/thread41/t41-p63.jpg)
 ![](images/thread41/t41-p64.jpg)
 
-##Update, Jun 7 2020
+## Update, Jun 7 2020
 
 Since we're talking about BEES. Not all critter that wants to become a Divine Beast gets to enter the pantheon. 密密Phone- "secretly phone"- appeared in Dec & was designed for a trolling strategy that's not worth talking about. It never caught on.
 

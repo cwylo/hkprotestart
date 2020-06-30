@@ -1,4 +1,4 @@
-## Myth and myth-making in HK protest art: a thread 
+# Myth and myth-making in HK protest art: a thread 
 
 *(Sep 21, 2019)*
 

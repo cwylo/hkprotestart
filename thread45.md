@@ -1,4 +1,4 @@
-#On War & Violence
+# On War & Violence
 *Nov 12 2019*
 
 An interesting development in our art is the realisation that the siege of CUHK went beyond proportionality - it's war. We compare it to WWII, we call this a 'war against tyranny', & we say the govt has declared war on us. 
@@ -63,7 +63,7 @@ We must not stop screaming. We must not stop resisting.
 ![](images/thread45/t45-p25.jpg)
 ![](images/thread45/t45-p26.jpg)
 
-##Update, Nov 13 2019
+## Update, Nov 13 2019
 
 A lot more art on this today. Our art is calling the Siege of CUHK as basically an act of war. Hyperboles have been flying free in our art for a while, but the frequency & intensity of these images means this new sentiment is worth watching.
 

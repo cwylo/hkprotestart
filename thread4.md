@@ -1,5 +1,5 @@
-## Delacroix and Hong Kong
-*Sep 23, 2019&*
+# Delacroix and Hong Kong
+*Sep 23, 2019*
 
 I ❤️this. The various HK versions of 'La Liberté guidant le peuple' from the movement are stunning. All a tad different in tone and feel, but all build towards some unifying mythology.
 

@@ -1,6 +1,6 @@
-#Non-image threads
+# Non-image threads
 
-##On NSFW HK protest art
+## On NSFW HK protest art
 Jun 24, 2020
 
 NSFW HK protest art exist - but they also tend to be super sexist, or feature *actual sexual assaults*. 
@@ -21,8 +21,8 @@ As someone who's vowed to catalogue everything ,warts & all, I made myself look 
 
 I won't subject any of you to them.
 
-##On the intended audience
-Jun 25 2020
+## On the intended audience
+*Jun 25 2020*
 
 I notice there has been a growing Discourse on this topic within HK Twitter, so here's my 2 cents.
 

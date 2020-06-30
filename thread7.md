@@ -1,4 +1,4 @@
-## The Egg and the Promise
+# The Egg and the Promise
 *Sep 26, 2019*
 
 As the mvmt wears on, many Hkers have started to feel depressed. Art has been an avenue to express this pain, but also a way for us to tell each other -  you matter, you are not alone, we will walk this path together. 1/7
