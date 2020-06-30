@@ -1,6 +1,6 @@
 This is intended as a mirror for protest art threads once hosted on Twitter, for future academic or archival use.
 
-A closing statement from the original account.
+A closing statement from the original account, written Jun 29, 2020, a day before the National Security Legislation went into effect.
 
 > Proto-uwu was born on July 14, after the HK police spilt blood at New Town Plaza, the local mall where I spent most of my childhood. From following the 'publicity material' closely, I somehow found myself lurking in the translation group, to not-so-lurking, to... well.
 
@@ -30,7 +30,6 @@ A closing statement from the original account.
 
 > But before that comes to pass, I hope everyone stay safe. I wish to thank all the artists, crafters, photographers, writers, copy writers, editors, translators, etc. who have created basically everything you've seen in my threads. If I made you feel anything, it is because of their words and creation - all credit to their tireless work. I wish also to thank friends and allies who've helped boost our message these past few months - it is very much appreciated.
 
-*Jun 29, 2020, a day before the National Security Legislation went into effect.*
 ([source one](images/uwu1.jpg), [source two](images/uwu2.jpg))
 
 # Links to threads:

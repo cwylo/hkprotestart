@@ -98,26 +98,29 @@ There aren't many striking posters of the 'woleifei', because, as the myth goes,
 The idea of distinct roles - think RPGs where you've tanks, DPS and healers - makes for a nice, powerful myth and helped when we were first organising. The braves defend us! The woleifeis support us! But they at times also restrict us from seeing the reality. 
 
 ![A grid of illustrations portraying eight "types" of protestor: the Logistics Group is represented by a surgical mask and cardboard box of supplies. The Journalist with press helmet and vest. First Aider with medical vest. Social Worker with ID badge and phone. Legislative Councillor with ID badge and megaphone. Peaceful Protestor with cap and surgical mask. Publicity group with laptop. Bravest Protestor with hard hat, goggles and respirator. In the center is a white bauhinia icon on a yellow background, and text reading: Either the way, we share the same goal. Chinese text: No withdrawing (support), no scattering, no leaving, no abandoning.](images/thread1/t1-p34.jpg)  
-*Chinese text: No withdrawing (support), no scattering, no leaving, no abandoning.*
+*Chinese text in center: No withdrawing (support), no scattering, no leaving, no abandoning.*
 
 The reality that the 'frontline' of resistance has changed. Students who join human chains. Housewives who shout out slogans at night. 'Gaifong's who protect kids and their neighborhoods form the HKPF. Musicians playing our anthem in a mall. They are all actively fighting. 
 
-![t1-p35](images/thread1/t1-p35.jpg)
-![t1-p36](images/thread1/t1-p36.jpg)
-![t1-p37](images/thread1/t1-p37.jpg)
+![Four photographs depicting middle/high schoolers, in masks, forming human chains as part of peaceful protests. None of them are holding hands directly, but rather holding onto objects together: boxes of soybean milk, umbrellas, clothes. On the side, written vertically in Chinese, is: "Blossoming everywhere: over 140 secondary schools form a human chain."](images/thread1/t1-p35.jpg)  
+*On the side, written vertically in Chinese, is: "Blossoming everywhere: over 140 secondary schools form a human chain."*
+![An MTR-style poster featuring bold monochromatic illustrations in a red circle. The illustration is of two tower blocks filled with people shouting at each other, with the Chinese slogan "Liberate Hong Kong, Revolution of Our Times" in the middle. Underneath is text in Chinese and English saying: "Roaring at 22:00, HongKonger Let's shout"](images/thread1/t1-p36.jpg)
+![A black and white photo of a man, arms outstretched, unarmed and dressed in a tank top, shorts and flip flops, standing in front of a riot police officer aiming a revolver in his direction. On top is a caption in Chinese: "When the people do not fear death, what do they fear?"](images/thread1/t1-p37.jpg)
+*Chinese: "When the people do not fear death, what do they fear?"*
 
 The reality that the our 'braves' are not invulnerable superhumans. They get tired. They get depressed. They are not some anonymous 'black bloc' with no personality. They are just ordinary humans, faced with extraordinary circumstances. They can be us. They are us. 
 
-![t1-p38](images/thread1/t1-p38.jpg)
-![t1-p39](images/thread1/t1-p39.jpg)
+![An illustration of a protestor with hard hat, goggles and dust mask, with his head bowed amidst a cloud of tear gas. A caption in a handwritten English style says, "You don't need tear gas to make us cry." A square red mark in the bottom right corner reads, "FK THE POPO".](images/thread1/t1-p38.jpg)
+![A simple illustration of a female protestor wearing a black shirt and hard hat, crying and trying to wipe away her tears with balled-up hands.](images/thread1/t1-p39.jpg)
 
 'Braves' or 'woleifei's isn't so important anymore - HKPF arrests everyone anyway. Line btw 'protestor' and HK citizen also artificial by now- when singing a song, posting on FB, jogging at night can be considered offensive acts, daily life becomes an act of resistance. 
 
-![t1-p40](images/thread1/t1-p40.jpg)
+![A colourful illustration of an umbrella, green laser pointer, and hard hat. It is captioned in English and Chinese as "daily item". A hashtag in the corner, in Chinese, reads: #Conscience flash cards.](images/thread1/t1-p40.jpg)
+*The hashtag: #Conscience flash cards.*
 
 We have to let go of some of the myths we've built around ourselves and our movement. 'Braves'/'woleifei' distinction makes it easy for others to portray this as a movement driven by a few 'radical protestors', when in fact it's HK citizens resisting. 
 
-![t1-p41](images/thread1/t1-p41.jpg)
+![An MTR style poster, featuring a simple heavily stylized illustration of a human chain inside a red circle. The caption, in Chinese and English, reads, "HongKongers stand as one".](images/thread1/t1-p41.jpg)
 
 We must let go of seeing those geared up as invincible protectors of our city. Not because we're ungrateful - so many of them have bled and cried for HK during this summer of smoke. 
 
@@ -129,38 +132,41 @@ China as the country we know now has only really come into being in the last 3 d
 
 ... it means big 時代 changes are not impossible, that our 革命 may not be futile. After all, the Avengers found their 1 in 14mln chance. Luke saved his father. We must have hope, if not for ourselves, then for our stories to inspire all those to come who fight tyranny. 
 
-![t1-p42](images/thread1/t1-p42.png)
+![A fantasy-style drawing of a young boy, dressed in dirty brown clothes and holding a broom, looking up at the night sky filled with stars.](images/thread1/t1-p42.png)
 
 ## Update, Oct 6, 2019
 
-UPDATE - Star Wars protest art: We've actually had a few more. "Darkness rises, and light to meet it" frames the HKPF as the dark side, HKers as the light, ready for a final showdown... or a platonic hand-touching session in a hut in front of a roaring fire 😬 (All from TG/ Insta)
+Star Wars protest art: We've actually had a few more. "Darkness rises, and light to meet it" frames the HKPF as the dark side, HKers as the light, ready for a final showdown... or a platonic hand-touching session in a hut in front of a roaring fire 😬 (All from TG/ Insta)
 
-![t1-p43](images/thread1/t1-p43.jpg)
+![A heavily modified photograph depicting riot police on the left and protestors on the right. The left side has a red overlay and the right side has a blue overlay. On the bottom, left to right, is the English: "Dark rises — Light to meet it". Vertically down the middle in Chinese: "The Final Battle".](images/thread1/t1-p43.jpg)
+*Vertically down the middle in Chinese: "The Final Battle".*
 
 I have NO IDEA what this is. Is that *actually* Jesus with a lightsaber, protecting the back of one of our HK frontliners? Or is it an Obi-Wan who's let his beard grow out a bit? Either way, the pic is cute, and suggests god/the Force is with us.
 
-![t1-p44](images/thread1/t1-p44.jpg)
+![A cartoonish chibi-style illustration of a Jedi - caucasian man in a robe holding a red lightsaber with a bushy beard - standing back to back with a Hong Kong protestor wielding a green lightsaber, all on a dark blue background. There is a caption in English reading "BOOMJESUS".](images/thread1/t1-p44.jpg)
 
 UPDATE - Avengers/superhero protest art: The antimask law's inspired some interesting pieces. This suggests it's akin to the Superhuman Registration Act which forces heroes to unmask. In which case, neither Iron Man nor Spidey shld look so dour but this is cool art, so shush! 🤓
 
-![t1-p45](images/thread1/t1-p45.jpg)
+![An illustration of five characters standing in a row, all handcuffed. Left to right are: Spider-Man, Iron Man, a Hong Kong frontline protestor, Batman, and The Flash. At the bottom is a line of text in Chinese: "Oct 5 2019 00:00 The Anti-Mask Law is in effect."](images/thread1/t1-p45.jpg)  
+*Chinese: "Oct 5 2019 00:00 The Anti-Mask Law is in effect."*
 
 Things are dire, but we've kept our sense of humor. The left says antimask law means Iron Man now needs to take off his mask if he flies into HK. On the right, Thor is a frontline 'brave', and Cap is one of the peaceful woleifeis (hehe) - they must work together to save HK.
 
-![t1-p46](images/thread1/t1-p46.jpg)
-![t1-p47](images/thread1/t1-p47.jpg)
+![Three edited screenshots of an Iron Man movie. Top: A closeup of Tony Stark in his Iron Man suit, with the caption, "Tony, you have to take off your mask NOW." Middle: Iron Man flying in the sky with the caption, "Are you fxxking kidding me?" Bottom: A closeup of Stark inside the suit with pictures of Xi Jinping and Carrie Lam superimposed on top, with the caption, "Do you know that we have entered the sky of Hong Kong?"](images/thread1/t1-p46.jpg)
+![A poster advertising a peaceful march on Oct 1, using action figures of Captain America, Thor, and Iron Man. Thor, in the foreground, has Captain America hoisted over one shoulder while Iron Man is in the background. Captain America is labelled, in Chinese, "Extreme Peaceful Protestor", saying, "Today must be peaceful..." while Thor, labelled "Brave" (as in frontliner), is saying "Peace your mother, be brave with me together!" ](images/thread1/t1-p47.jpg)
+*Captain America is labelled, in Chinese, "Extreme Peaceful Protestor", saying, "Today must be peaceful..." while Thor, labelled "Brave" (as in frontliner), is saying "Peace your mother, be brave with me together!"*
 
 ## Update, Nov 22, 2019
 
 UPDATE: The Avengers, earth's mightiest heroes, will beat Thanos with... the power of the vote? 
 
-"Differentiate between good & evil - every vote counts!" - says poster, encouraging everyone to vote in the elections tomorrow.
+"Differentiate between good & evil - every vote counts!" - says poster, encouraging everyone to vote in the elections tomorrow.[^2]
 
 PS. Is that Captain Hong Kong?
 
 Source: TG
 
-![t1-p48](images/thread1/t1-p48.jpg)
+![A redraw of an Avengers: Endgame poster, with the heroes in the bottom left looking upwards towards an ominously looming Carrie Lam, who has taken the place of Thanos from the original poster. Chinese text on it reads: Differentiate between good & evil - every vote counts!](images/thread1/t1-p48.jpg)
 
 ## Update, Nov 25, 2019
 
@@ -168,7 +174,7 @@ UPDATE: The district council elections are over, but we ain’t done avenging ye
 
 Source: TG
 
-![t1-p49](images/thread1/t1-p49.jpg)
+![A photo of frontliners running towards the front line with a mass of protestors behind them. Glowing circles, taken from Avengers: Infinity War/Endgame, show "reinforcements" coming in: woleifei peaceful protestors. Text in English reads, "Whatever it takes." Across the bottom in small text: "Some people have moved on but not us".](images/thread1/t1-p49.jpg)
 
 ## (Jan 20, 2020)
 
@@ -178,7 +184,7 @@ UPDATE: Are the Avengers in a union?  Probably not, but this is the first we've 
 
 Source: TG
 
-![t1-p50](images/thread1/t1-p50.png)
+![One person standing in front of a glowing circular portal, taken from the Avengers movies. Inside the portal is a tightly packed street filled with protestors. The text, in Chinese, reads: "When you're tired, look behind you - there are many who support you. Save HK, save yourself. Join a union, fight against power."](images/thread1/t1-p50.png)
 
 ## Update, May 15, 2020
 
@@ -186,7 +192,8 @@ UPDATE: 😍 Ooooh. Star Wars continue to inspire! This is quite a picture - a n
 
 Source: stayfuckingcool - IG via TG
 
-![t1-p51](images/thread1/t1-p51.jpg)
+![An edited photograph of a protestor in helmet, ballistic goggles and half-face respirator. They are wearing heavy-duty gloves and wielding a lightsaber. The protestor is standing in the rain against a smoky backdrop. The left side of the image is lit up in blue, while the right-hand side is in red.](images/thread1/t1-p51.jpg)
 
 ### Notes
 [^1]: "Woleifei" is a phonetic transliteration of the term in Chinese, 和理非. It is an abbreviation for 和平，理性，非暴力, *peaceful, rational, non-violent*.
+[^2]: The [2019 District Council elections](https://en.wikipedia.org/wiki/2019_Hong_Kong_local_elections).
