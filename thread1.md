@@ -37,21 +37,24 @@ We tapped into Star Wars later. Started as a fun bit of trolling - in early Aug,
 
 ![Yellow-outlined Chinese text, and an English translation of the same, overlaid on an image of galaxies in reference to the Star Wars logo. Text reads: Liberate Hong Kong, Revolution of Lasers](images/thread1/t1-p12.jpg)
 ![Modified photograph of a protestor holding up a reflector, on which other people are aiming blue and green laser pointers. The beam from the reflector has been edited to read "Extradition Bill" in white. The image is captioned, "May the force be with us."](images/thread1/t1-p13.jpg)
-![t1-p14](images/thread1/t1-p14.jpg)
-![t1-p15](images/thread1/t1-p15.jpg)
+![Illustration of a frontliner in a black helmet, ballistic goggles, and a half-face respirator, holding a green laser pointer shining at the viewer and a green lightsaber. Text on top reads WE ARE ONE. Text on bottom reads FREEDOM/Got to fight for it.](images/thread1/t1-p14.jpg)
+![Two images. Top image is of the Death Star getting ready to fire a green beam of light. Bottom image is a photograph of a protestor holding up a reflector, into which the surrounding people are shining blue and green laser pointers, implying that the protestor in the bottom image is deflecting the shot from the Death Star.](images/thread1/t1-p15.jpg)
 
 The HK version of Tom Jung's iconic Star Wars poster. We are a new hope. China is the Death Star, the police is its enforcer, Vader, and we have tear gas canisters flying instead of X-wings. Note R2 has been unceremoniously replaced by a bin. I don’t know why either. 😂 
 
-![t1-p16](images/thread1/t1-p16.jpg)
-![t1-p17](images/thread1/t1-p17.jpg)
+![An illustration copying Tom Jung's Star Wars poster, with a male and female protestor taking the place of Luke and Leia, R2-D2 replaced with a Hong Kong style orange trash bin, and flying tear-gas canisters instead of X-wings. Vader in the back has been replaced with a gas-masked riot cop.](images/thread1/t1-p16.jpg)
+![An adapted Star Wars movie poster, with Vader in the back replaced with a gas-masked riot cop. Luke in the foreground has been replaced by a protestor in a yellow hard hat, with a half face respirator, a black short-sleeved shirt, and work gloves, holding a green lightsaber aimed straight up. The caption reads: Hong Kong, A New Hope. Text at the bottom in Chinese reads: "All citizens awaken / At the first light of dawn." ](images/thread1/t1-p17.jpg)
+*Text at the bottom in Chinese reads: "All citizens awaken / At the first light of dawn."*
 
 Let’s talk Luke. That’s his lightsaber on here (because me = nerd). Not just his, actually. Anakin’s first, then Luke, then passed on to Rey 30 yrs later.  We HKers are just the latest custodians of hope, part of a fight that started long before we were born.
 
-![t1-p18](images/thread1/t1-p18.jpg)
+![A poster advertising a march at Sham Shui Po on August 11. Text is mainly in Chinese. Top to bottom: "Sham Shui Po, Anti-Extradition Bill (lit. 'anti-return to China'). The poster lists the starting point, meeting time, march start time, and final location, and says the march has obtained a letter of no objection. A list of slogans on the right reads: "A collective blossoming", "Five demands, not one lest", "Push aside corrupt help, return my Hong Kong", "Kick aside corrupt cops, a fair city", "Hong Kong People, awaken". ](images/thread1/t1-p18.jpg)  
+*Top to bottom: "Sham Shui Po, Anti-Extradition Bill (lit. 'anti-return to China'). The poster lists the starting point, meeting time, march start time, and final location, and says the march has obtained a letter of no objection. A list of slogans on the right reads: "A collective blossoming", "Five demands, not one lest", "Push aside corrupt help, return my Hong Kong", "Kick aside corrupt cops, a fair city", "Hong Kong People, awaken".*
 
 Fitting the other SW story we see ourselves in is TLJ. We are a desperate Resistance. We are Rose, saving what we love, even as we grieve. We are Luke, facing the might of the FO alone, asking our family to choose better,  buying time for our friends. We are the spark...
 
-![t1-p19](images/thread1/t1-p19.jpg)
+![An illustrated adaptation of a The Last Jedi poster with different Hong Kong protestors in place of the movie's characters. Text at the bottom reads: Sham Shui Po, Anti-Extradition Bill March, August 11.](images/thread1/t1-p19.jpg)  
+*Text at the bottom reads: Sham Shui Po, Anti-Extradition Bill March*
 
 These may just be kids referencing what they know. But these modern shared myths have also helped HKers frame what we're going thru, because... it still feels surreal. But heroes standing up against evil? - a tale as old as time, we can wrap our heads around that.
 
@@ -59,8 +62,10 @@ These may just be kids referencing what they know. But these modern shared myths
 
 Apart from identifying with modern myths, HKers have also been active creating their own. The most prevalent is the distinction between the frontline 'braves', and the peaceful 'woleifei'. 
 
-![t1-p20](images/thread1/t1-p20.jpg)
-![t1-p21](images/thread1/t1-p21.jpg)
+![An illustration of peaceful 'woleifei' protestors in black and white on a yellow background. The background contains the faint names of Hong Kong districts. Main caption reads: WE THE FEARLESS MAJORITY. Text in top right corner: Never Forget (English and Chinese). Text in bottom left: Eggs have never been alone (in Chinese).](images/thread1/t1-p20.jpg)  
+*Text in bottom left: Eggs have never been alone.*
+![An illustration of militant 'yungmo' frontline protestors in black, yellow and white, in front of outlines of umbrellas representing the peaceful 'woleifei' protestors behind them. Main caption reads: WE're MANY THEY're FEW. Text in top right corner: Never Forget (English and Chinese). Text in bottom left: Eggs never come alone (in Chinese).](images/thread1/t1-p21.jpg)  
+*Text in bottom left: Eggs never come alone (in Chinese).*
 
 The 'braves' have the most stunning art and posters. Because, I mean... just look at that imagery. We turn street signs into shields. We use mom's oven mitts to pick up tear gas canisters. We have our tennis rackets and umbrellas, in a city of fire and smoke. 
 
