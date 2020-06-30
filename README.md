@@ -4,11 +4,11 @@ A closing statement from the original account.
 
 > Proto-uwu was born on July 14, after the HK police spilt blood at New Town Plaza, the local mall where I spent most of my childhood. From following the 'publicity material' closely, I somehow found myself lurking in the translation group, to not-so-lurking, to... well.
 
-> Fast forward to Sept, when I was part of a discussion on Telegram with some fellow HKers about the state of the movement's image abroad, why it felt like we were screaming into the void, adn what we can do better. As with all things when HKers are involved, the debate got heated and w were ready to fistfight. And then -
+> Fast forward to Sept, when I was part of a discussion on Telegram with some fellow HKers about the state of the movement's image abroad, why it felt like we were screaming into the void, and what we can do better. As with all things when HKers are involved, the debate got heated and we were ready to fistfight. And then -
 
 > "I just want to be seen as human."
 
-> The message popped up on the chat. It was from one fo the anonymous members who had been a front-liner. They went on to explain how they *really* wanted to put a cute sticker on their helmet, so that for foreign journalists who interview them, it would show there's a personality - and a *person* - underneath the black uniform and respirator. Sure, a sticker might make them more easily identifiable, but it would be worth it to have a bit of dignity.
+> The message popped up on the chat. It was from one of the anonymous members who had been a front-liner. They went on to explain how they *really* wanted to put a cute sticker on their helmet, so that for foreign journalists who interview them, it would show there's a personality - and a *person* - underneath the black uniform and respirator. Sure, a sticker might make them more easily identifiable, but it would be worth it to have a bit of dignity.
 
 > For days, I could not get that damn sticker out of my head, nor their words -
 
@@ -33,7 +33,7 @@ A closing statement from the original account.
 *Jun 29, 2020, a day before the National Security Legislation went into effect.*
 ([source one](images/uwu1.jpg), [source two](images/uwu2.jpg))
 
-#Links to threads:
+# Links to threads:
 
 1. [Myths and myth-making](https://cwylo.github.io/hkprotestart/thread1), Sep 21 2019
 2. [Cats and dogs](https://cwylo.github.io/hkprotestart/thread2), Sep 23 2019
@@ -87,7 +87,7 @@ Non-threaded:
 * [Memeing for Democracy](https://cwylo.github.io/hkprotestart/dememe), Jun 27 2020
 * [Text-only threads](https://cwylo.github.io/hkprotestart/textthreads)
 
-##Frequently Asked Questions
+## Frequently Asked Questions
 
 **Why aren't the artists credited?**
 

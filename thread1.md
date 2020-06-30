@@ -6,31 +6,37 @@ HKers have been fighting for 3 mths, and we've seen how powerful modern myths ca
 
 One modern myth we've gone to again and again is the Avengers. They appear here as a bit of a joke early on in mid June, after the govt unleashed tear gas because there were 'rioters'. We joked those few rioters must be superhuman to warrant such overreaction. 😂 
 
-![t1-p1](images/thread1/t1-p1.jpg)
+![Heroes from an Avengers: Infinity War poster pasted over an image of a mass demonstration in Hong Kong.](images/thread1/t1-p1.jpg)   
 
 It then gets grim. These are from July - the 1st alludes to how Dr Strange 'beats' Dormammu by losing again and again. 2nd is from Endgame - the chance of winning is infinitesimal, and if we lose... So we have to win, whatever it takes.
 
-![t1-p2](images/thread1/t1-p2.jpg)
-![t1-p3](images/thread1/t1-p3.jpg)
+![A series of photos of major protest milestones: the 1.03 million person march on Jun 9, the 2 million march on Jun 16, the Jun 12 protest, and the Jul 1 occupation of LegCo. Image ends on a screenshot from the movie Doctor Strange, where the protagonist declares, "No, but I can lose. Again. And again. And again. Forever. That makes you my prisoner." This is captioned with a Chinese phrase reading, "Hong Kongers, never defeated!"](images/thread1/t1-p2.jpg)  
+*Left to right, top to bottom: 6.9 1.03 million person march. 6.16 2 million person march. 6.12 Wounding of the Bauhinia. 7.1 Hong Kong people's LegCo. Hong Kongers, never defeated!* 
+![A screenshot from the movie Doctor Strange, with the words "Whatever it takes" at the top partially fading into dust. The screenshot is annotated with a comment in Chinese: "(If) we lose this time, there is no returning. We must beat them, until 2047." ](images/thread1/t1-p3.jpg)  
+*Caption reads: "(If) we lose this time, there is no returning. We must beat them, until 2047."*
 
 By Aug, HKers have *become* the Avengers, because no one was coming to our aid. We're heroes assembling to take on a titan. But sense of dread pervades - note that ref to Ragnorak. Thor comes to that conclusion after deciding he had to burn down his home to save the world. 
 
-![t1-p4](images/thread1/t1-p4.jpg)
-![t1-p5](images/thread1/t1-p5.jpg)
-![t1-p6](images/thread1/t1-p6.jpg)
-![t1-p7](images/thread1/t1-p7.jpg)
+![A modified Avengers: Infinity War poster, made to read "Airport: Infinity War" instead, with a background formed from overlaid images of the airport occupation, riot police firing a shotgun, and frontliners with umbrellas up against tear gas. Text at the bottom reads, in Chinese, "Continue to Fly-with-you", a reference to Hong Kong International Airport occupations.](images/thread1/t1-p4.jpg)
+*Text at bottom reads: Continue to Fly-With-You.*
+![A poster advertising a march on Aug 18 at 3 PM, from Victoria Park to Charter Road. The main slogan reads, Hong Kongers, ASSEMBLE!! as well as "Stop triad violence, limit police chaos" and "Support the Five Demands".](images/thread1/t1-p5.jpg)
+*A poster advertising a march on Aug 18 at 3 PM, from Victoria Park to Charter Road. The main slogan reads, Hong Kongers, ASSEMBLE!! as well as "Stop triad violence, limit police chaos" and "Support the Five Demands".*
+![Two photos. The top photo, of the Hong Kong skyline, is captioned, "Hong Kong is not a place". The bottom image, of a street filled during a peaceful march, reads "IT'S A PEOPLE". Hashtag in the corner, in Chinese: "Leaving the island but not the people?"](images/thread1/t1-p6.jpg)  
+*Hashtag in the corner, in Chinese: "Leaving the island but not the people?"*
+![A colourful illustration of all kinds of hongkongers in protest gear, representing a variety of protestor "types" such as medics, journalists, peaceful protestors and frontliners, as well as well known protest figures such as Uncle Chan of Save the Children. Text in the middle reads, in Chinese and English, "Hong Kongers, Assemble. We will go together."](images/thread1/t1-p7.jpg)  
+*Text in the middle reads, in Chinese and English, "Hong Kongers, Assemble. We will go together."*
 
 September, Avengers still here, especially Cap. His shield defends our frontline fighters. His words too. We've not given up, even after seeing our friends fail and fall 5 years ago. And we're here to fight. (That's a deep cut, whoever made that ‘permission' poster). 
 
-![t1-p8](images/thread1/t1-p4.jpg)
-![t1-p9](images/thread1/t1-p5.jpg)
-![t1-p10](images/thread1/t1-p6.jpg)
-![t1-p11](images/thread1/t1-p7.jpg)
+![Illustration of a frontline protestor in hard hat and half-face respirator, in profile. He is carrying a black bauhinia flag and a Captain America shield. Text on the bottom left reads: 9.18 Hong Kong Human Rights and Democracy Act.](images/thread1/t1-p8.jpg)
+![Vertically-rotated image of Harcourt Romanticist's redrawing of Liberty Leading the People, with protestors in place of the revolutionaries. Text, in English, reads: some people moved on. BUT NOT US. #FightForFreedom #StandWithHongKong](images/thread1/t1-p9.jpg)
+![Illustration of black-on-yellow silhouettes of frontline protestors, extinguishing tear gas with cones as more tear gas canisters come down. Text, in white, reads: Some people moved on/But not us.](images/thread1/t1-p10.jpg)
+![Poster advertising un-permitted rally for Sep 15. Image is a illustrated closeup of two hands held together, by two people dressed in yellow. Text on top, in white, reads: We're way past asking for permission.](images/thread1/t1-p11.jpg)
 
 We tapped into Star Wars later. Started as a fun bit of trolling - in early Aug, HKPF arrested a student for buying laser pens, saying they're offensive weapons. 😂 From then on, laser pens (and occasionally toy lightsabers) became very much part of the protest and the art. 
 
-![t1-p12](images/thread1/t1-p12.jpg)
-![t1-p13](images/thread1/t1-p13.jpg)
+![Yellow-outlined Chinese text, and an English translation of the same, overlaid on an image of galaxies in reference to the Star Wars logo. Text reads: Liberate Hong Kong, Revolution of Lasers](images/thread1/t1-p12.jpg)
+![Modified photograph of a protestor holding up a reflector, on which other people are aiming blue and green laser pointers. The beam from the reflector has been edited to read "Extradition Bill" in white. The image is captioned, "May the force be with us."](images/thread1/t1-p13.jpg)
 ![t1-p14](images/thread1/t1-p14.jpg)
 ![t1-p15](images/thread1/t1-p15.jpg)
 
