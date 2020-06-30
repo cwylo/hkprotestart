@@ -60,7 +60,7 @@ These may just be kids referencing what they know. But these modern shared myths
 
 (Also, I know the likes of @Russo_Brothers and @rianjohnson can't, won't, and probably shouldn't engage in a thread on HK protest art. But still want them to know their stories have left their mark, and inspired a people.) 
 
-Apart from identifying with modern myths, HKers have also been active creating their own. The most prevalent is the distinction between the frontline 'braves', and the peaceful 'woleifei'. 
+Apart from identifying with modern myths, HKers have also been active creating their own. The most prevalent is the distinction between the frontline 'braves', and the peaceful 'woleifei'[^1]. 
 
 ![An illustration of peaceful 'woleifei' protestors in black and white on a yellow background. The background contains the faint names of Hong Kong districts. Main caption reads: WE THE FEARLESS MAJORITY. Text in top right corner: Never Forget (English and Chinese). Text in bottom left: Eggs have never been alone (in Chinese).](images/thread1/t1-p20.jpg)  
 *Text in bottom left: Eggs have never been alone.*
@@ -69,17 +69,21 @@ Apart from identifying with modern myths, HKers have also been active creating t
 
 The 'braves' have the most stunning art and posters. Because, I mean... just look at that imagery. We turn street signs into shields. We use mom's oven mitts to pick up tear gas canisters. We have our tennis rackets and umbrellas, in a city of fire and smoke. 
 
-![t1-p22](images/thread1/t1-p22.jpg)
-![t1-p23](images/thread1/t1-p23.jpg)
-![t1-p24](images/thread1/t1-p24.jpg)
-![t1-p25](images/thread1/t1-p25.jpg)
+![A modified photo of a young woman, her face out of shot, holding a makeshift shield made from a road sign. She is wearing a black short-sleeved tshirt and heavy-duty black gloves, with a yellow hard hat hanging from her hip. The background is a foggy black-and-white photo of the Hong Kong skyline. Text, in white, reads: You'll never walk alone (English), Revolution of Our Times (Chinese), Aug 5,  general strike across Hong Kong (Chinese). At the bottom are two hashtags, #FUXKDAGOV and #FUXKDAPOLICE, and the other half of the slogan: Free Hong Kong Revolution Now (English), Liberate Hong Kong (Chinese).](images/thread1/t1-p22.jpg)  
+*Text, in white, reads: Revolution of Our Times, Aug 5, general strike across Hong Kong (Chinese).*
+![A digital painting of a teenaged yungmo frontliner, in a black bike helmet, shatterproof goggles, and half-face respirator with thin black fabric over the respirator. He has work gloves on and is smothering a burning tear-gas canister with a metal wok lid.](images/thread1/t1-p23.jpg)
+![A digital poster featuring a frontliner tossing back a burning tear gas canister. Text superimposed on top reads: We Fight. Text around the edges reads: Faith is taking the first step / even when you don't see the staircase. At the bottom, a quote: "The time is always right to do what is right. — Martin Luther King, Civil rights leader."](images/thread1/t1-p24.jpg)
+![A black-and-white illustration of a female frontliner in hard hat, goggles and respirator, holding an umbrella. She is getting ready to sprint into a cloud of gas. Superimposed on top (English) in large red letters: "Even the darkest night will end. Together we fight and the sun will rise. Guardians of Hong Kong. Copyright 2019, all rights reserved by Hong Kong Citizens.](images/thread1/t1-p25.jpg)
 
 More posters of the 'braves' in HK. A crew of masked and geared up young people, posed like reluctant heroes in some cyberpunk world. And always, the damn tear gas. 
 
-![t1-p26](images/thread1/t1-p26.jpg)
-![t1-p27](images/thread1/t1-p27.jpg)
-![t1-p28](images/thread1/t1-p28.jpg)
-![t1-p29](images/thread1/t1-p29.jpg)
+![A photograph of a young frontliner in hard hat, goggles and respirator, standing against an out-of-focus backdrop of a street filled with protestors. It looks like the air is filled with gas and the glow suggests a fire in the back. Text on top, mainly English: Stand with HK. In Chinese: Liberate Hong Kong, Revolution of Our Times. English: If We Burn, You Burn With Us. God Bless HK.](images/thread1/t1-p26.jpg)  
+*Chinese text reads: Liberate Hong Kong, Revolution of Our Times.*
+![An illustration of seven frontline protestors standing in a dense cloud of smoke, some in hard hats, a few in just soft hats. Most are wearing eye protection in the form of goggles, swim goggles, or a full-face respirator. Everyone is masked. The protestor in the bottom center of the image has his hand on a traffic cone.](images/thread1/t1-p27.jpg)  
+*Chinese text reads: Liberate Hong Kong, Revolution of Our Times.*
+![A stylized illustration of a woman, face uncovered in a plain baseball hat, shielding a young girl from tear gas canisters fired by a line of riot police. She is shielding herself and the girl with a yellow umbrella labelled "Hong Kong" with the bauhinia symbol on it. All around them is a dense cloud of tear gas. In the background are skyscrapers.](images/thread1/t1-p28.jpg)
+![A modified photograph of a group of frontline protestors, holding makeshift shields, pouring water on a burning tear gas canister. On top is the Chinese slogan "Liberate Hong Kong, Revolution of Our Times". In large English text, the word "protestor" has been partially crossed out so it reads "protector".](images/thread1/t1-p29.jpg)
+*Chinese text reads: Liberate Hong Kong, Revolution of Our Times.*
 
 There aren't many striking posters of the 'woleifei', because, as the myth goes, only the 'braves' do the striking. The closest we got are these, all of which are on the theme of the unity between the frontline and their more peaceful and rational brothers and sisters. 
 
@@ -162,7 +166,7 @@ Source: TG
 
 ![t1-p49](images/thread1/t1-p49.jpg)
 
-##(Jan 20, 2020)
+## (Jan 20, 2020)
 
 UPDATE: Are the Avengers in a union?  Probably not, but this is the first we've seen the union formation materials reference Endgame.
 
@@ -179,3 +183,6 @@ UPDATE: 😍 Ooooh. Star Wars continue to inspire! This is quite a picture - a n
 Source: stayfuckingcool - IG via TG
 
 ![t1-p51](images/thread1/t1-p51.jpg)
+
+### Notes
+[^1]: "Woleifei" is a phonetic transliteration of the term in Chinese, 和理非. It is an abbreviation for 和平，理性，非暴力, *peaceful, rational, non-violent*.
