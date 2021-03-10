@@ -8,21 +8,26 @@ For @HongKongHermit, still in Twitter jail, who likes cats and HK
 
 Early Aug, HKPF started firing teargas with wild abandon around resi. areas - our pets were being affected by the gas. It's one thing for masked protesters to eat TG, another for our fur babies to suffer. These cute posters were for a rally against police actions in mid Aug. 2/7
 
-![t2-p1](images/thread2/t2-p1.jpg)
-![t2-p2](images/thread2/t2-p2.jpg)
-![t2-p3](images/thread2/t2-p3.jpg)
-![t2-p4](images/thread2/t2-p4.jpg)
+![First of four illustrated posters depicting a chubby cartoon tuxedo (black and white) cat stretching. The captions in Chinese read, top to bottom: I am a Lucky Cat, not a crying cat. Protect our furbabies, stop police violence. At the very bottom is an advertisement for the Aug 18 rally against police actions.](images/thread2/t2-p1.jpg)
+![Second of four illustrated posters depicting a chubby cream coloured cat lying down. Caption is the same as the first image.](images/thread2/t2-p2.jpg)
+![Third of four illustrated posters depicting a striped ginger cat standing up. Caption is the same as the first image.](images/thread2/t2-p3.jpg)
+![Fourth of four illustrated posters depicting a grey cat playing with a blue ball of yarn. Caption is the same as the first image.](images/thread2/t2-p4.jpg)
+*The captions in Chinese read, top to bottom: I am a Lucky Cat, not a crying cat. Protect our furbabies, stop police violence. At the very bottom is an advertisement for the Aug 18 rally against police actions.*
 
 As these show, our cats stay indoors, don't give a fig about politics and still got whacked by indiscriminate policing. If there're HKers who still believed they can look away, these kitties are saying - no, there is no escape from politics, it'll impact you sooner or later 3/7
 
-![t2-p5](images/thread2/t2-p5.jpg)
-![t2-p6](images/thread2/t2-p6.jpg)
-![t2-p7](images/thread2/t2-p7.jpg)
-![t2-p8](images/thread2/t2-p8.jpg)
+![A photoshopped picture of a tabby cat wearing a respirator and tearing up, sitting on a rumpled grey sheet. A withered bauhinia logo is in the top right, with the protest slogan "Liberate Hong Kong, Revolution of our Times" underneath. A caption in Chinese underneath the image of the cat reads: "(Even if) you don't seek out politics, politics will seek out you."](images/thread2/t2-p5.jpg)
+*Chinese caption: "(Even if) you don't seek out politics, politics will seek out you."*
+![A picture of a tabby black flat-faced shorthair cat sitting on a bookshelf perch amidst a cloud of smoke. The Chinese caption reads, ""Mr. Policeman says it's scary to go out on the streets, but my master is scared even without going out.""](images/thread2/t2-p6.jpg)
+*"Mr. Policeman says it's scary to go out on the streets, but my master is scared even without going out."*
+![A photoshopped image of a tabby cat wearing a dust mask, on a navy blue background. There is a little CS gas canister on the left emitting a cloud of smoke. The caption in transliterated Cantonese reads: "Hong Kongers, see you at Victoria Garden on Aug 18! Five Demands, Not One Less!"](images/thread2/t2-p7.jpg)
+*Transliterated Cantonese reads: "Hong Kongers, see you at Victoria Garden on Aug 18! Five Demands, Not One Less!"*
+![A photoshopped image of four cats - a tabby with a half-face respirator, a ginger cat with shatterproof goggles, a black cat with a half face respirator (without cartridges), and a white cat with a bloodied gauze patch over the right eye - standing against a backdrop of thick smoke. The captions read: "Stop harming Hong Kong citizens! Stop harming our underlings! Hong Kongers, add oil!"](images/thread2/t2-p8.jpg)
+*"Stop harming Hong Kong citizens! Stop harming our underlings! Hong Kongers, add oil!"*
 
 The HKers as cats metaphor works nicely because the police are so hated they are referred to as dogs. They're presented as sometimes yapping and annoying, sometimes vicious and rabid. What's always implicit is that they have a master, and it's not the HK people. 4/7
 
-![t2-p9](images/thread2/t2-p9.jpg)
+![A heavily stylized poster in the style of the MTR. The central graphic shows a dog with a cop's head yapping at a person. The caption, in English and Chinese, reads, "Please mind the gap between you and Popo".](images/thread2/t2-p9.jpg)
 ![t2-p10](images/thread2/t2-p10.jpg)
 ![t2-p11](images/thread2/t2-p11.jpg)
 ![t2-p12](images/thread2/t2-p12.jpg)
